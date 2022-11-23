@@ -1,1 +1,1 @@
-lista de los vídeos y sus subtítulos
+Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia de Datos y Aprendizaje Automático de la Universidad de La Rioja. Podemos encontrar los subtítulos generados por el modelo Whisper que se encuentra en el siguiente repositorio: https://github.com/mirenmirari/TFM.
