@@ -57,8 +57,8 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
 
 10. Título: Distribución de kits bucodentales
 
-   Enlace: https://www.youtube.com/watch?v=XygB_x6ajv0&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=10
+      Enlace: https://www.youtube.com/watch?v=XygB_x6ajv0&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=10
    
-   Subtítulos: [Distribución de kits bucodentales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10112775/Distribucion.de.kits.bucodentales.zip)
+      Subtítulos: [Distribución de kits bucodentales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10112775/Distribucion.de.kits.bucodentales.zip)
 
 11.
