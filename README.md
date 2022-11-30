@@ -255,3 +255,235 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
     Enlace: https://www.youtube.com/watch?v=Mm7FNrqCYaQ&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=40
     
     Subtítulos: [Programa Integra en el IES Cosme García.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121384/Programa.Integra.en.el.IES.Cosme.Garcia.zip)
+
+41. Título: Programa 'Integra en la escuela'
+
+    Enlace: https://www.youtube.com/watch?v=oen6_8YQzo0&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=41
+    
+    Subtítulos: [Programa 'Integra en la escuela'.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121448/Programa.Integra.en.la.escuela.zip)
+
+42. Título: Recepción del Alcalde de Logroño
+
+    Enlace: https://www.youtube.com/watch?v=uREyueqin6I&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=42
+    
+    Subtítulos: [Recepción del Alcalde de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121453/Recepcion.del.Alcalde.de.Logrono.zip)
+
+
+43. Título: Reunión con las organizaciones profesionales agrarias ARAG-Asaja, UAGR-COAG y UPARioja
+
+    Enlace: https://www.youtube.com/watch?v=s_3cvk1hQbs&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=43
+    
+    Subtítulos: [Reunión con las organizaciones profesionales agrarias ARAG-Asaja, UAGR-COAG y UPARioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121458/Reunion.con.las.organizaciones.profesionales.agrarias.ARAG-Asaja.UAGR-COAG.y.UPARioja.zip)
+
+
+44. Título: Reunión con los directores de centros educativos y los alcaldes de municipios de Rioja Baja
+
+    Enlace: https://www.youtube.com/watch?v=7nkwYo4RwuM&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=44
+    
+    Subtítulos: [Reunión con los directores de centros educativos y los alcaldes de municipios de Rioja Baja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121472/Reunion.con.los.directores.de.centros.educativos.y.los.alcaldes.de.municipios.de.Rioja.Baja.zip)
+
+
+45. Título: Reunión con UGT y CCOO
+
+    Enlace: https://www.youtube.com/watch?v=lET9xKucDTU&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=45
+    
+    Subtítulos: [Reunión con UGT y CCOO.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121479/Reunion.con.UGT.y.CCOO.zip)
+
+
+46. Título: Reunión de la Mesa para la Reconstrucción Económica y Social
+
+    Enlace: https://www.youtube.com/watch?v=_ARoFX9FKjU&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=46
+    
+    Subtítulos: [Reunión de la Mesa para la Reconstrucción Económica y Social.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121490/Reunion.de.la.Mesa.para.la.Reconstruccion.Economica.y.Social.zip)
+
+
+47. Título: Rueda de prensa posterior al Consejo de Gobierno - 27.07.2022
+
+    Enlace: https://www.youtube.com/watch?v=HP4jEc-osWg&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=47
+    
+    Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno - 27.07.2022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121545/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.-.27.07.2022.zip)
+
+48. Título: Toma de posesión de Amelia Pascual como nuevo miembro del Consejo Consultivo
+
+    Enlace: https://www.youtube.com/watch?v=nMlhZ6uVDxI&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=48
+
+    Subtítulos: [Toma de posesión de Amelia Pascual como nuevo miembro del Consejo Consultivo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121599/Toma.de.posesion.de.Amelia.Pascual.como.nuevo.miembro.del.Consejo.Consultivo.zip)
+
+
+49. Título: Visita a la cooperativa Bodegas Aradón
+
+    Enlace: https://www.youtube.com/watch?v=At_kHhe62Kc&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=49
+    
+    Subtítulos: [Visita a la cooperativa Bodegas Aradón.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121560/Visita.a.la.cooperativa.Bodegas.Aradon.zip)
+
+
+50. Título: Visita a las instalaciones del Centro Integrado de FP a distancia
+
+    Enlace: https://www.youtube.com/watch?v=yyqnFEL7hPM&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=50
+    
+    Subtítulos: [Visita a las instalaciones del Centro Integrado de FP a distancia.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121583/Visita.a.las.instalaciones.del.Centro.Integrado.de.FP.a.distancia.zip)
+
+
+51. Título: Visita a las instalaciones del Juzgado de lo Penal nº3
+
+    Enlace: https://www.youtube.com/watch?v=guCTXQ1d2TY&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=51
+    
+    Subtítulos: [Visita a las instalaciones del Juzgado de lo Penal nº3.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121595/Visita.a.las.instalaciones.del.Juzgado.de.lo.Penal.n.3.zip)
+
+
+52. Título: Visita a las obras de la estación de autobuses de Logroño
+
+    Enlace: https://www.youtube.com/watch?v=AnjJYJo4sF4&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=52
+    
+    Subtítulos: [Visita a las obras de la estación de autobuses de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121604/Visita.a.las.obras.de.la.estacion.de.autobuses.de.Logrono.zip)
+
+
+53. Título: Visita a las restauración de las murallas de Briones
+
+    Enlace: https://www.youtube.com/watch?v=yHEF5f3RkO4&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=53
+    
+    Subtítulos: [Visita a las restauración de las murallas de Briones.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121611/Visita.a.las.restauracion.de.las.murallas.de.Briones.zip)
+
+
+54. Título: Visita al Banco de Alimentos de Logroño
+
+    Enlace: https://www.youtube.com/watch?v=3cPgXNmxU2o&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=54
+    
+    Subtítulos: [Visita al Banco de Alimentos de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121618/Visita.al.Banco.de.Alimentos.de.Logrono.zip)
+
+
+55. Título: Visita al CPA y CD Manzanera
+
+    Enlace: https://www.youtube.com/watch?v=l5_1XkXf6DE&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=55
+    
+    Subtítulos: [Visita al CPA y CD Manzanera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121625/Visita.al.CPA.y.CD.Manzanera.zip)
+
+
+56. Título: Visita al inmueble cedido a la Universidad Popular de Logroño
+
+    Enlace: https://www.youtube.com/watch?v=duUqD3gu0Ak&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=56
+    
+    Subtítulos: [Visita al inmueble cedido a la Universidad Popular de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121634/Visita.al.inmueble.cedido.a.la.Universidad.Popular.de.Logrono.zip)
+
+
+57. Título: Visita el punto de vacunación
+
+    Enlace: https://www.youtube.com/watch?v=p7z0JtHNT4s&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=57
+    
+    Subtítulos: [Visita el punto de vacunación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121639/Visita.el.punto.de.vacunacion.zip)
+
+
+58. Título: Visita la nueva planta de fabricación de mascarillas de la empresa Arneplant
+
+    Enlace: https://www.youtube.com/watch?v=sRhuHFf3Wj0&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=58
+    
+    Subtítulos: [Visita la nueva planta de fabricación de mascarillas de la empresa Arneplant.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121650/Visita.la.nueva.planta.de.fabricacion.de.mascarillas.de.la.empresa.Arneplant.zip)
+
+
+59. Título: Visital a las nuevas instalaciones del Servicio de Urgencias Pediátricas
+
+    Enlace: https://www.youtube.com/watch?v=6VZHo3VbFJ8&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=59
+    
+    Subtítulos: [Visital a las nuevas instalaciones del Servicio de Urgencias Pediátricas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121654/Visital.a.las.nuevas.instalaciones.del.Servicio.de.Urgencias.Pediatricas.zip)
+
+
+60. Título: visitan el final de obra de la carretera LR-206 correspondiente a la travesía de Berceo
+
+    Enlace: https://www.youtube.com/watch?v=xMTO0EOcm5Q&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=60
+    
+    Subtítulos: [visitan el final de obra de la carretera LR-206 correspondiente a la travesía de Berceo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121671/visitan.el.final.de.obra.de.la.carretera.LR-206.correspondiente.a.la.travesia.de.Berceo.zip)
+
+
+61. Título: XXVII Cata Solidaria Rotary Club de Logroño
+
+    Enlace: https://www.youtube.com/watch?v=bgTHfQU_Uac&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=61
+    
+    Subtítulos: [XXVII Cata Solidaria Rotary Club de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121689/XXVII.Cata.Solidaria.Rotary.Club.de.Logrono.zip)
+
+
+62. Título: Apertura jornada Aspace-Rioja
+
+    Enlace: https://www.youtube.com/watch?v=GHOR7Ol1leE&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=62
+    
+    Subtítulos: [Apertura jornada Apace-Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121694/Apertura.jornada.Apace-Rioja.zip)
+
+
+63. Título: Presentación Feria del Mueble de Nájera
+
+    Enlace: https://www.youtube.com/watch?v=WpLh9Dyw1I4&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=63
+    
+    Subtítulos: [Presentación Feria del Mueble de Nájera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121697/Presentacion.Feria.del.Mueble.de.Najera.zip)
+
+
+64. Título: Visita III Feria de Formación Profesional
+
+    Enlace: https://www.youtube.com/watch?v=eQhz2gJFNp8&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=64
+    
+    Subtítulos: [Visita III Feria de Fomación Profesional.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121701/Visita.III.Feria.de.Fomacion.Profesional.zip)
+
+65. Título: Jornadas Financiacion Ayuntamientos
+
+    Enlace: https://www.youtube.com/watch?v=gYnEX-T4ou0&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=65
+    
+    Subtítulos: [Jornadas Financiación Ayuntamientos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121705/Jornadas.Financiacion.Ayuntamientos.zip)
+
+
+66. Título: Intervención del presidente en el Pleno del Parlamento de La Rioja
+
+    Enlace: https://www.youtube.com/watch?v=ZMGxBQ7XsI4&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=66
+    
+    Subtítulos: [Intervención del presidente en el Pleno del Parlamento de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121709/Intervencion.del.presidente.en.el.Pleno.del.Parlamento.de.La.Rioja.zip)
+
+
+67. Título: Actos Día Europeo Víctimas del Terrorismo
+
+    Enlace: https://www.youtube.com/watch?v=edj9dqXdu_Y&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=67
+    
+    Subtítulos: [Actos Día Europeo Víctimas del Terrorismo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121719/Actos.Dia.Europeo.Victimas.del.Terrorismo.zip)
+
+
+68: Título: Visita Carrizal de Cofín y obras de rehabilitación del barrio del Burgo.
+
+    Enlace: https://www.youtube.com/watch?v=vUtzv3PMjpc&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=68
+    
+    Subtítulos: [Visita Carrizal de Cofín y obras de rehabilitación del barrio del Burgo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121728/Visita.Carrizal.de.Cofin.y.obras.de.rehabilitacion.del.barrio.del.Burgo.zip)
+
+
+69: Título: Aprobación de la  Ley medidas económicas
+
+    Enlace: https://www.youtube.com/watch?v=-mQTHW0uge8&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=69
+    
+    Subtítulos: [Aprobación de la Ley medidas económicas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121731/Aprobacion.de.la.Ley.medidas.economicas.zip)
+
+70. Título: Presentación recurso contra Ley de Protección de los Animales
+
+    Enlace: https://www.youtube.com/watch?v=ucx_iWKU0NU&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=70
+    
+    Subtítulos: [Presentación recurso contra Ley de Protección de los Animales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121734/Presentacion.recurso.contra.Ley.de.Proteccion.de.los.Animales.zip)
+
+
+71. Título: Premios Consejo Social UR
+
+    Enlace: https://www.youtube.com/watch?v=acZe6-VlzRE&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=71
+    
+    Subtítulos: [Premios Consejo Social UR.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121743/Premios.Consejo.Social.UR.zip)
+
+72. Título: Visita obras IES Duques de Nájera
+
+    Enlace: https://www.youtube.com/watch?v=I1YL5bUT-zM&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=72
+    
+    Subtítulos: [Visita obras IES Duques de Nájera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121751/Visita.obras.IES.Duques.de.Najera.zip)
+
+
+73. Título: Presentación I Plan Estratégico para la Igualdad de Mujeres y Hombres
+
+    Enlace: https://www.youtube.com/watch?v=VcXzL2E8jXo&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=73
+    
+    Subtítulos: [Presentación I Plan Estratégico para la Igualdad de Mujeres y Hombres.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121756/Presentacion.I.Plan.Estrategico.para.la.Igualdad.de.Mujeres.y.Hombres.zip)
+
+
+74: Título: Preguntas al presiente del Gobierno de La Rioja en el Parlamento
+
+    Enlace: https://www.youtube.com/watch?v=JkcibaeKEtE&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=74
+    
+    Subtítulos: [Preguntas al presidente del Gobierno de La Rioja en el Parlamento.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121765/Preguntas.al.presidente.del.Gobierno.de.La.Rioja.en.el.Parlamento.zip)
