@@ -446,7 +446,8 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
 
     Enlace: https://www.youtube.com/watch?v=vUtzv3PMjpc&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=68
     
-    Subtítulos: [Visita Carrizal de Cofín y obras de rehabilitación del barrio del Burgo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121728/Visita.Carrizal.de.Cofin.y.obras.de.rehabilitacion.del.barrio.del.Burgo.zip)
+    Subtítulos: [Visita Carrizal de Cofín y obras de rehabilitación del barrio del Burgo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121784/Visita.Carrizal.de.Cofin.y.obras.de.rehabilitacion.del.barrio.del.Burgo.zip)
+
 
 
 69: Título: Aprobación de la  Ley medidas económicas
@@ -486,4 +487,5 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
 
     Enlace: https://www.youtube.com/watch?v=JkcibaeKEtE&list=PLIwAJEy9NNYN-sJNk5NJUYnGJgh_nWJ81&index=74
     
-    Subtítulos: [Preguntas al presidente del Gobierno de La Rioja en el Parlamento.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121765/Preguntas.al.presidente.del.Gobierno.de.La.Rioja.en.el.Parlamento.zip)
+    Subtítulos: [Preguntas al presidente del Gobierno de La Rioja en el Parlamento.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10121798/Preguntas.al.presidente.del.Gobierno.de.La.Rioja.en.el.Parlamento.zip)
+
