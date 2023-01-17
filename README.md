@@ -1863,7 +1863,1238 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
 
      Enlace: https://www.youtube.com/watch?v=fSoxb_fIgNo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=311
      
-     Subtítulos: 
+     Subtítulos: [CAMBIANDO MENTALIDADES SABADO 23 JORNADA DE MAÑANA.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423858/CAMBIANDO.MENTALIDADES.SABADO.23.JORNADA.DE.MANANA.zip)
+
+311. Título: CAMBIANDO MENTALIDADES  VIERNES 22 JORNADA TARDE
+
+     Enlace: https://www.youtube.com/watch?v=_hnZ54emQDg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=312
+
+     Subtítulos: [CAMBIANDO MENTALIDADES  VIERNES 22 JORNADA TARDE.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423865/CAMBIANDO.MENTALIDADES.VIERNES.22.JORNADA.TARDE.zip)
+
+312. Título: Acto de apertura del 13ªCongreso Regional de la UGT
+
+     Enlace: https://www.youtube.com/watch?v=fAeEi7yy4pQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=313
+     
+     Subtítulos: [Acto de apertura del 13ªCongreso Regional de la UGT.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423876/Acto.de.apertura.del.13.Congreso.Regional.de.la.UGT.zip)
+
+313. Título: Comparecencia posterior a la reunión bilateral entre el Gobierno de España y el Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=uXsMOmC_wMw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=314
+     
+     Subtítulos: [Comparecencia posterior a la reunión bilateral entre el Gobierno de España y el Gobierno de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423893/Comparecencia.posterior.a.la.reunion.bilateral.entre.el.Gobierno.de.Espana.y.el.Gobierno.de.La.Rioja.zip)
+
+314. Título: Lectura del manifiesto con motivo del Día Mundial de la lucha contra el Cáncer de Mama
+
+     Enlace: https://www.youtube.com/watch?v=oXJUogwmQc8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=315
+     
+     Subtítulos: [Lectura del manifiesto con motivo del Día Mundial de la lucha contra el Cáncer de Mama.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423889/Lectura.del.manifiesto.con.motivo.del.Dia.Mundial.de.la.lucha.contra.el.Cancer.de.Mama.zip)
+
+315. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=daZW12ip1Yg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=316
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (27).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423900/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.27.zip)
+
+316. Título: Presentación de la XXIII Edición de las Jornadas del Queso de Munilla
+
+     Enlace: https://www.youtube.com/watch?v=N6Rr5hZucC4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=317
+     
+     Subtítulos: [Presentación de la XXIII Edición de las Jornadas del Queso de Munilla.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423905/Presentacion.de.la.XXIII.Edicion.de.las.Jornadas.del.Queso.de.Munilla.zip)
+
+317. Título: 2021 10 19 RP XIX Concurso Pinchos
+
+     Enlace: https://www.youtube.com/watch?v=jb40e9h2gHg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=318
+     
+     Subtítulos: [2021 10 19 RP XIX Concurso Pinchos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423908/2021.10.19.RP.XIX.Concurso.Pinchos.zip)
+
+318. Título: Presentación de la nueva edición del festival Teatrea
+
+     Enlace: https://www.youtube.com/watch?v=vmq4cT6pzCs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=319
+     
+     Subtítulos: [Presentación de la nueva edición del festival Teatrea.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423913/Presentacion.de.la.nueva.edicion.del.festival.Teatrea.zip)
+
+319. Título: Información de la presencia de La Rioja en el Salón Gourmets
+
+     Enlace: https://www.youtube.com/watch?v=DBnNjQNlJnQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=320
+     
+     Subtítulos: [Información de la presencia de La Rioja en el Salón Gourmets.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423922/Informacion.de.la.presencia.de.La.Rioja.en.el.Salon.Gourmets.zip)
+
+320. Título: Ayudas del Plan MOVES III para impulsar la movilidad sostenible en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=fEkgMV-3fSk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=321
+     
+     Subtítulos: [Ayudas del Plan MOVES III para impulsar la movilidad sostenible en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423970/Ayudas.del.Plan.MOVES.III.para.impulsar.la.movilidad.sostenible.en.La.Rioja.zip)
+
+321. Título: Presentación del programa de encuentros para fomentar la lactancia materna
+
+     Enlace: https://www.youtube.com/watch?v=BDLz-he9hfA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=322
+     
+     Subtítulos: [Presentación del programa de encuentros para fomentar la lactancia materna.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423973/Presentacion.del.programa.de.encuentros.para.fomentar.la.lactancia.materna.zip)
+
+322. Título: Ampliación de la Estación Depuradora de Aguas Residuales de Galilea
+
+     Enlace: https://www.youtube.com/watch?v=xoASiaGDo08&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=323
+     
+     Subtítulos: [Ampliación de la Estación Depuradora de Aguas Residuales de Galilea.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423978/Ampliacion.de.la.Estacion.Depuradora.de.Aguas.Residuales.de.Galilea.zip)
+
+323. Título: Nueva programación musical para los meses de otoño
+
+     Enlace: https://www.youtube.com/watch?v=dc0oGrvRo_k&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=324
+     
+     Subtítulos: [Nueva programación musical para los meses de otoño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423980/Nueva.programacion.musical.para.los.meses.de.otono.zip)
+
+324. Título: Balance de la incidencia del coronavirus en los centros educativos
+
+     Enlace: https://www.youtube.com/watch?v=_Tqoa5lyWbg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=325
+     
+     Subtítulos: [Balance de la incidencia del coronavirus en los centros educativos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423985/Balance.de.la.incidencia.del.coronavirus.en.los.centros.educativos.zip)
+
+325. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=tjvped8aQYw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=326
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (28).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423991/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.28.zip)
+
+326. Título: Apertura del curso académico 2021-2022 de la Universidad de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=kymnn0fnEHA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=327
+     
+     Subtítulos: [Apertura del curso académico 2021-2022 de la Universidad de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423995/Apertura.del.curso.academico.2021-2022.de.la.Universidad.de.La.Rioja.zip)
+
+327. Título: Comparecencia del Alto Comisionado para la Lucha contra la Pobreza Infantil
+
+     Enlace: https://www.youtube.com/watch?v=j_yG-GOHtFw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=328
+     
+     Subtítulos: [Comparecencia del Alto Comisionado para la Lucha contra la Pobreza Infantil.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10423998/Comparecencia.del.Alto.Comisionado.para.la.Lucha.contra.la.Pobreza.Infantil.zip)
+
+328. Título: Juegos Deportivos de La Rioja para el curso 2021/2022
+
+     Enlace: https://www.youtube.com/watch?v=AHAd4H3j6Bc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=329
+     
+     Subtítulos: [Juegos Deportivos de La Rioja para el curso 20212022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424004/Juegos.Deportivos.de.La.Rioja.para.el.curso.20212022.zip)
+
+329. Título: Firma del convenio de integración de los estudios de Grado de Enfermería en la UR
+
+     Enlace: https://www.youtube.com/watch?v=tuVqFMoVoq8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=330
+     
+     Subtítulos: [Firma del convenio de integración de los estudios de Grado de Enfermería en la UR.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424007/Firma.del.convenio.de.integracion.de.los.estudios.de.Grado.de.Enfermeria.en.la.UR.zip)
+
+330. Título: Acto de constitución de la asociación EDIH La Rioja 4.0
+
+     Enlace: https://www.youtube.com/watch?v=-AnAHRDeEbo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=331
+     
+     Subtítulos: [Acto de constitución de la asociación EDIH La Rioja 4.0.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424014/Acto.de.constitucion.de.la.asociacion.EDIH.La.Rioja.4.0.zip)
+
+331. Título: Participación riojana en la Feria Internacional del Sector de Frutas y Hortalizas 'Fruit Attraction'
+
+     Enlace: https://www.youtube.com/watch?v=IBHJewHL6LM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=332
+     
+     Subtítulos: [Participación riojana en la Feria Internacional del Sector de Frutas y Hortalizas 'Fruit Attraction'.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424018/Participacion.riojana.en.la.Feria.Internacional.del.Sector.de.Frutas.y.Hortalizas.Fruit.Attraction.zip)
+
+332. Título: Rueda de prensa con la vicepresidenta y ministra de Asuntos Económicos y Transformación Digital
+
+     Enlace: https://www.youtube.com/watch?v=4pXziNvKACY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=333
+     
+     Subtítulos: [Rueda de prensa con la vicepresidenta y ministra de Asuntos Económicos y Transformación Digital.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424027/Rueda.de.prensa.con.la.vicepresidenta.y.ministra.de.Asuntos.Economicos.y.Transformacion.Digital.zip)
+
+333. Título: Presentación del proyecto de Ley de Presupuestos de La Rioja para 2022
+
+     Enlace: https://www.youtube.com/watch?v=7zhyEXzHeEs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=334
+     
+     Subtítulos: [Presentación del proyecto de Ley de Presupuestos de La Rioja para 2022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424033/Presentacion.del.proyecto.de.Ley.de.Presupuestos.de.La.Rioja.para.2022.zip)
+
+334. Título: Presentación del Plan Corresponsables
+
+     Enlace: https://www.youtube.com/watch?v=bmyymjVVMgc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=335
+     
+     Subtítulos: [Presentación del Plan Corresponsables (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10424044/Presentacion.del.Plan.Corresponsables.2.zip)
+
+335. Título: Recepción de la ministra de Transportes, Movilidad y Agenda Urbana
+
+     Enlace: https://www.youtube.com/watch?v=NcJcj7F2ik8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=336
+     
+     Subtítulos: [Recepción de la ministra de Transportes, Movilidad y Agenda Urbana.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425033/Recepcion.de.la.ministra.de.Transportes.Movilidad.y.Agenda.Urbana.zip)
+
+336. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=H6sslFr2QqU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=337
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (29).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425040/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.29.zip)
+
+337. Título: Presentación de subvenciones de participación para ayuntamientos
+
+     Enlace: https://www.youtube.com/watch?v=Gm62M2HLzqc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=338
+     
+     Subtítulos: [Presentación de subvenciones de participación para ayuntamientos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425048/Presentacion.de.subvenciones.de.participacion.para.ayuntamientos.zip)
+
+338. Título: Análisis de la campaña de vacunación frente al COVID-19
+
+     Enlace: https://www.youtube.com/watch?v=wGWhTnnIdVA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=339
+     
+     Subtítulos: [Análisis de la campaña de vacunación frente al COVID-19.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425053/Analisis.de.la.campana.de.vacunacion.frente.al.COVID-19.zip)
+
+339. Título: Presentación del nuevo proceso de mapeado de la cultura riojana
+
+     Enlace: https://www.youtube.com/watch?v=upivdRtfS14&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=340
+     
+     Subtítulos: [Presentación del nuevo proceso de mapeado de la cultura riojana.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425066/Presentacion.del.nuevo.proceso.de.mapeado.de.la.cultura.riojana.zip)
+
+340. Título: Información sobre las negociaciones de los Presupuestos 2022
+
+     Enlace: https://www.youtube.com/watch?v=7H5FQfce9i8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=341
+     
+     Subtítulos: [Información sobre las negociaciones de los Presupuestos 2022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425073/Informacion.sobre.las.negociaciones.de.los.Presupuestos.2022.zip)
+
+341. Título: Nuevo ciclo musical
+
+     Enlace: https://www.youtube.com/watch?v=w8L0qcknO9M&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=342
+     
+     Subtítulos: [Nuevo ciclo musical.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425079/Nuevo.ciclo.musical.zip)
+
+342. Título: Conferencia Mundial de la OMT sobre Turismo Enológico 2023
+
+     Enlace: https://www.youtube.com/watch?v=Spq7myzvFOM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=343
+     
+     Subtítulos: [Conferencia Mundial de la OMT sobre Turismo Enológico 2023.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425085/Conferencia.Mundial.de.la.OMT.sobre.Turismo.Enologico.2023.zip)
+
+343. Título: 2021 09 20 Visita Finca Valdegon
+
+     Enlace: https://www.youtube.com/watch?v=jL2gvnWLr6k&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=344
+     
+     Subtítulos: [2021 09 20 Visita Finca Valdegon.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425089/2021.09.20.Visita.Finca.Valdegon.zip)
+
+344. Título: I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN MATINAL DIA 17
+
+     Enlace: https://www.youtube.com/watch?v=3StdkOxNS4I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=345
+     
+     Subtítulos: [I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN MATINAL DIA 17.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425095/I.CONGRESO.SOBRE.VIOLENCIA.SEXUAL.SESION.MATINAL.DIA.17.zip)
+
+345. Título: Visita al área de trabajo del personal del Instituto Geológico y Minero de España
+
+     Enlace: https://www.youtube.com/watch?v=es6potzkyc0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=346
+     
+     Subtítulos: [Visita al área de trabajo del personal del Instituto Geológico y Minero de España.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425100/Visita.al.area.de.trabajo.del.personal.del.Instituto.Geologico.y.Minero.de.Espana.zip)
+
+346. Título: I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN DE TARDE.
+
+     Enlace: https://www.youtube.com/watch?v=G0Pa0iUuVd0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=347
+     
+     Subtítulos: [I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN DE TARDE..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425106/I.CONGRESO.SOBRE.VIOLENCIA.SEXUAL.SESION.DE.TARDE.zip)
+
+347. Título: Presentación de la nueva estrategia de vacunación frente al COVID-19 en el medio rural
+
+     Enlace: https://www.youtube.com/watch?v=2LRIugOYumA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=348
+     
+     Subtítulos: [Presentación de la nueva estrategia de vacunación frente al COVID-19 en el medio rural.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425112/Presentacion.de.la.nueva.estrategia.de.vacunacion.frente.al.COVID-19.en.el.medio.rural.zip)
+
+348. Título: Visita a la cooperativa Bodegas Aradón
+
+     Enlace: https://www.youtube.com/watch?v=At_kHhe62Kc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=349
+     
+     Subtítulos: [Visita a la cooperativa Bodegas Aradón.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425116/Visita.a.la.cooperativa.Bodegas.Aradon.zip)
+
+349. Título: I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN MATINAL
+
+     Enlace: https://www.youtube.com/watch?v=0jq-qawuJFk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=352
+     
+     Subtítulos: [I CONGRESO SOBRE VIOLENCIA SEXUAL. SESIÓN MATINAL.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425379/I.CONGRESO.SOBRE.VIOLENCIA.SEXUAL.SESION.MATINAL.zip)
+
+350. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=9O9KQCEqq0k&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=353
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (30).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425385/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.30.zip)
+
+351. Título: Análisis de la campaña de vacunación frente al COVID-19
+
+     Enlace: https://www.youtube.com/watch?v=hq_SxPV-VwE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=354
+     
+     Subtítulos: [Análisis de la campaña de vacunación frente al COVID-19 (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425405/Analisis.de.la.campana.de.vacunacion.frente.al.COVID-19.2.zip)
+
+352. Título: Plan de Seguridad Vial 2021
+
+     Enlace: https://www.youtube.com/watch?v=NeLRD8myZJ4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=355
+     
+     Subtítulos: [Plan de Seguridad Vial 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425412/Plan.de.Seguridad.Vial.2021.zip)
+
+353. Título: Subvenciones para cooperación al desarrollo y educación para la ciudadanía
+
+     Enlace: https://www.youtube.com/watch?v=aeZ9QXLcsS0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=356
+     
+     Subtítulos: [Subvenciones para cooperación al desarrollo y educación para la ciudadanía.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425430/Subvenciones.para.cooperacion.al.desarrollo.y.educacion.para.la.ciudadania.zip)
+
+354. Título: Campaña Prevención de Riesgos Laborales
+
+     Enlace: https://www.youtube.com/watch?v=5lsUcVwGWVE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=357
+     
+     Subtítulos: [Campaña Prevención de Riesgos Laborales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425436/Campana.Prevencion.de.Riesgos.Laborales.zip)
+
+355. Título: Campaña Prevención de Riesgos Laborales
+
+     Enlace: https://www.youtube.com/watch?v=0qAb4-dCuW0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=358
+     
+     Subtítulos: [Campaña Prevención de Riesgos Laborales (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425439/Campana.Prevencion.de.Riesgos.Laborales.2.zip)
+
+356. Título: Campaña Prevención de Riesgos Laborales. Trabajadora
+
+     Enlace: https://www.youtube.com/watch?v=pwmv_csg064&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=359
+     
+     Subtítulos: [Campaña Prevención de Riesgos Laborales. Trabajadora.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425442/Campana.Prevencion.de.Riesgos.Laborales.Trabajadora.zip)
+
+357. Título: Campaña Prevención de Riesgos Laborales. Empresario
+
+     Enlace: https://www.youtube.com/watch?v=-iCej1g25GY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=360
+     
+     Subtítulos: [Campaña Prevención de Riesgos Laborales. Empresario.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425446/Campana.Prevencion.de.Riesgos.Laborales.Empresario.zip)
+
+358. Título: Suelta de aves enmarcado en el programa 'Ayúdale a volar'
+
+     Enlace: https://www.youtube.com/watch?v=KDJuIyebw2g&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=361
+     
+     Subtítulos: [Suelta de aves enmarcado en el programa 'Ayúdale a volar'.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425460/Suelta.de.aves.enmarcado.en.el.programa.Ayudale.a.volar.zip)
+
+359. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=0ofr0d7cGcM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=362
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (31).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425541/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.31.zip)
+
+360. Título: Nueva campaña de recolección de la DOP Peras de Rincón
+
+     Enlace: https://www.youtube.com/watch?v=xxt2bAJvs9U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=363
+     
+     Subtítulos: [Nueva campaña de recolección de la DOP Peras de Rincón.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425543/Nueva.campana.de.recoleccion.de.la.DOP.Peras.de.Rincon.zip)
+
+361. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=4y04pwyAHqY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=364
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (32).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425550/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.32.zip)
+
+362. Título: Visita a Aldeanueva de Ebro
+
+     Enlace: https://www.youtube.com/watch?v=FcM-M1i5ubY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=365
+     
+     Subtítulos: [Visita a Aldeanueva de Ebro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425548/Visita.a.Aldeanueva.de.Ebro.zip)
+
+363. Título: Análisis de la campaña de vacunación frente al COVID-19
+
+     Enlace: https://www.youtube.com/watch?v=6ueK2LHt0mI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=366
+     
+     Subtítulos: [Análisis de la campaña de vacunación frente al COVID-19 (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425553/Analisis.de.la.campana.de.vacunacion.frente.al.COVID-19.3.zip)
+
+364. Título: Presentación de nuevas colaboración dirigidas a jóvenes en el Festival Fárdelej
+
+     Enlace: https://www.youtube.com/watch?v=TWTb5p2lZ8U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=367
+     
+     Subtítulos: [Presentación de nuevas colaboración dirigidas a jóvenes en el Festival Fárdelej.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425560/Presentacion.de.nuevas.colaboracion.dirigidas.a.jovenes.en.el.Festival.Fardelej.zip)
+
+365. Título: Análisis de la campaña de vacunación frente al COVID-19
+
+     Enlace: https://www.youtube.com/watch?v=BRycDrwROTI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=368
+     
+     Subtítulos: [Análisis de la campaña de vacunación frente al COVID-19 (4).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425648/Analisis.de.la.campana.de.vacunacion.frente.al.COVID-19.4.zip)
+
+366. Título: Comparecencia Concha Andreu - XXIV Conferencia de Presidentes Autonómicos
+
+     Enlace: https://www.youtube.com/watch?v=9EK3bbxtq9s&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=369
+     
+     Subtítulos: [Comparecencia Concha Andreu - XXIV Conferencia de Presidentes Autonómicos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425652/Comparecencia.Concha.Andreu.-.XXIV.Conferencia.de.Presidentes.Autonomicos.zip)
+
+367. Título: Balance del curso político ante los medios de comunicación
+
+     Enlace: https://www.youtube.com/watch?v=BL6QaZYX1ro&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=370
+     
+     Subtítulos: [Balance del curso político ante los medios de comunicación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425676/Balance.del.curso.politico.ante.los.medios.de.comunicacion.zip)
+
+368. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=yPCJAq_4nmE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=371
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (33).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425743/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.33.zip)
+
+369. Título: Visita al Hospital General de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=JcCFLkUakfY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=372
+     
+     Subtítulos: [Visita al Hospital General de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425764/Visita.al.Hospital.General.de.La.Rioja.zip)
+
+370. Título: Visita a la zona de la Comunidad de Regantes de la margen derecha del río Najerilla de Uruñuela
+
+     Enlace: https://www.youtube.com/watch?v=MFJmfM1Dddw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=373
+     
+     Subtítulos: [Visita a la zona de la Comunidad de Regantes de la margen derecha del río Najerilla de Uruñuela.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425773/Visita.a.la.zona.de.la.Comunidad.de.Regantes.de.la.margen.derecha.del.rio.Najerilla.de.Urunuela.zip)
+
+371. Título: Presentación del Festival Munijazz
+
+     Enlace: https://www.youtube.com/watch?v=931GhfC-YV0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=374
+     
+     Subtítulos: [Presentación del Festival Munijazz.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425835/Presentacion.del.Festival.Munijazz.zip)
+
+372. Título: Valoración la situación de las residencias de personas mayores de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=37lWkkCeLfY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=375
+     
+     Subtítulos: [Valoración la situación de las residencias de personas mayores de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425977/Valoracion.la.situacion.de.las.residencias.de.personas.mayores.de.La.Rioja.zip)
+
+373. Título: Visita al final de la obra de acondicionamiento de la carretera LR-509, entre Uruñuela y Somalo
+
+     Enlace: https://www.youtube.com/watch?v=RYHAo79_1j0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=376
+     
+     Subtítulos: [Visita al final de la obra de acondicionamiento de la carretera LR-509, entre Uruñuela y Somalo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425981/Visita.al.final.de.la.obra.de.acondicionamiento.de.la.carretera.LR-509.entre.Urunuela.y.Somalo.zip)
+
+374. Título: Presentación de la iniciativa del Autobús de la Repoblación
+
+     Enlace: https://www.youtube.com/watch?v=ESIBjJKzVG0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=377
+     
+     Subtítulos: [Presentación de la iniciativa del Autobús de la Repoblación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10425985/Presentacion.de.la.iniciativa.del.Autobus.de.la.Repoblacion.zip)
+
+375. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=sXg2VXc8_0I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=378
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (34).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427419/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.34.zip)
+
+376. Título: Reunión del Consejo Asesor del Medio Ambiente de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=31UTQocqCfQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=379
+     
+     Subtítulos: [Reunión del Consejo Asesor del Medio Ambiente de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427435/Reunion.del.Consejo.Asesor.del.Medio.Ambiente.de.La.Rioja.zip)
+
+377. Título: Presentación de la convocatoria pública de ayudas para el reto demográfico
+
+     Enlace: https://www.youtube.com/watch?v=uo1F213Gn2k&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=380
+     
+     Subtítulos: [Presentación de la convocatoria pública de ayudas para el reto demográfico.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427429/Presentacion.de.la.convocatoria.publica.de.ayudas.para.el.reto.demografico.zip)
+
+378. Título: Análisis de la campaña de vacunación frente al COVID-19
+
+     Enlace: https://www.youtube.com/watch?v=zI0dNJxQ0-s&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=381
+     
+     Subtítulos: [Análisis de la campaña de vacunación frente al COVID-19 (5).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427438/Analisis.de.la.campana.de.vacunacion.frente.al.COVID-19.5.zip)
+
+379. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=6FJBZRDDStU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=382
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427442/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.zip)
+
+380. Título: 20210715 RP Comunidades Energeticas
+
+     Enlace: https://www.youtube.com/watch?v=ZhYTVz4UxPc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=383
+     
+     Subtítulos: [20210715 RP Comunidades Energeticas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427455/20210715.RP.Comunidades.Energeticas.zip)
+
+381. Título: Presentación del Plan Estratégico de Subvenciones 2021 de ADER
+
+     Enlace: https://www.youtube.com/watch?v=DeKgiPnoayo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=384
+     
+     Subtítulos: [Presentación del Plan Estratégico de Subvenciones 2021 de ADER.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427470/Presentacion.del.Plan.Estrategico.de.Subvenciones.2021.de.ADER.zip)
+
+382. Título: Presentación del dispositivo para afrontar la temporada de alto riesgo de incendios forestales
+
+     Enlace: https://www.youtube.com/watch?v=8FIh6HzidJg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=385
+     
+     Subtítulos: [Presentación del dispositivo para afrontar la temporada de alto riesgo de incendios forestales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427476/Presentacion.del.dispositivo.para.afrontar.la.temporada.de.alto.riesgo.de.incendios.forestales.zip)
+
+383. Título: balance de las ayudas COVID-19 y a la rehabilitación
+
+     Enlace: https://www.youtube.com/watch?v=7hypceVW9t0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=386
+     
+     Subtítulos: [balance de las ayudas COVID-19 y a la rehabilitación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427480/balance.de.las.ayudas.COVID-19.y.a.la.rehabilitacion.zip)
+
+384. Título: Acto de la primera piedra del futuro colegio público de Casalarreina
+
+     Enlace: https://www.youtube.com/watch?v=kzEo4K19AEk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=387
+     
+     Subtítulos: [Acto de la primera piedra del futuro colegio público de Casalarreina.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427485/Acto.de.la.primera.piedra.del.futuro.colegio.publico.de.Casalarreina.zip)
+
+385. Título: Presentación del festival FITLO
+
+     Enlace: https://www.youtube.com/watch?v=VFW-LBwHI5A&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=388
+     
+     Subtítulos: [Presentación del festival FITLO.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427493/Presentacion.del.festival.FITLO.zip)
+
+386. Título: Presentación de la política de agentes de igualdad municipales
+
+     Enlace: https://www.youtube.com/watch?v=w5u8Y0t6Q6Y&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=389
+     
+     Subtítulos: [Presentación de la política de agentes de igualdad municipales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427502/Presentacion.de.la.politica.de.agentes.de.igualdad.municipales.zip)
+
+387. Título: 2021 06 29 Firma Convenios Alcaldes
+
+     Enlace: https://www.youtube.com/watch?v=7GOFLvBS0Js&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=390
+     
+     Subtítulos: [2021 06 29 Firma Convenios Alcaldes.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427508/2021.06.29.Firma.Convenios.Alcaldes.zip)
+
+388. Título: Política pública de vivienda y creación del parque público en alquiler social
+
+     Enlace: https://www.youtube.com/watch?v=IbUnoaNzKtU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=391
+     
+     Subtítulos: [Política pública de vivienda y creación del parque público en alquiler social.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427518/Politica.publica.de.vivienda.y.creacion.del.parque.publico.en.alquiler.social.zip)
+
+389. Título: Renueva tu demanda de empleo ¡Te lo ponemos fácil!
+
+     Enlace: https://www.youtube.com/watch?v=9YvMhDIJte8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=392
+     
+     Subtítulos: [Renueva tu demanda de empleo ¡Te lo ponemos fácil!.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427526/Renueva.tu.demanda.de.empleo.Te.lo.ponemos.facil.zip)
+
+390. Título: Recepción a los deportistas riojanos que van a participar en los Juegos Olímpicos
+
+     Enlace: https://www.youtube.com/watch?v=bTvshGKjoJ0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=393
+     
+     Subtítulos: [Recepción a los deportistas riojanos que van a participar en los Juegos Olímpicos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427532/Recepcion.a.los.deportistas.riojanos.que.van.a.participar.en.los.Juegos.Olimpicos.zip)
+
+391. Título: Balance del curso escolar recién concluido en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=piXCMlh-1f4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=394
+     
+     Subtítulos: [Balance del curso escolar recién concluido en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427544/Balance.del.curso.escolar.recien.concluido.en.La.Rioja.zip)
+
+
+392. Título: Acto de reconocimiento del sector de personas mayores
+
+     Enlace: https://www.youtube.com/watch?v=FxP-gT3AReQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=395
+     
+     Subtítulos: [Acto de reconocimiento del sector de personas mayores.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427550/Acto.de.reconocimiento.del.sector.de.personas.mayores.zip)
+
+393. Título: Lectura del manifiesto por el Día del Orgullo LGTBI
+
+     Enlace: https://www.youtube.com/watch?v=g8XZgg0sUSo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=396
+
+     Subtítulos: [Lectura del manifiesto por el Día del Orgullo LGTBI.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427552/Lectura.del.manifiesto.por.el.Dia.del.Orgullo.LGTBI.zip)
+
+394. Título: Firma de los convenios de colaboración con los alcaldes de municipios de más de dos mil habitantes
+
+     Enlace: https://www.youtube.com/watch?v=JV6J2PUgxTs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=397
+     
+     Subtítulos: [Firma de los convenios de colaboración con los alcaldes de municipios de más de dos mil habitantes.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427558/Firma.de.los.convenios.de.colaboracion.con.los.alcaldes.de.municipios.de.mas.de.dos.mil.habitantes.zip)
+
+395. Título: Primera suelta colectiva de aves del programa de voluntariado ‘Ayúdale a volar’
+
+     Enlace: https://www.youtube.com/watch?v=9dJP9XMBUTA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=398
+     
+     Subtítulos: [Primera suelta colectiva de aves del programa de voluntariado ‘Ayúdale a volar’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427609/Primera.suelta.colectiva.de.aves.del.programa.de.voluntariado.Ayudale.a.volar.zip)
+
+396. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=UPXjgIYbRoc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=399
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427620/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.2.zip)
+
+397. Título: Proyecto con la Fundación Deporte Sin Barreras y el Colegio Oficial de Fisioterapeutas de La Rioja.
+
+     Enlace: https://www.youtube.com/watch?v=mcRXZ_HmmPY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=400
+     
+     Subtítulos: [Proyecto con la Fundación Deporte Sin Barreras y el Colegio Oficial de Fisioterapeutas de La Rioja..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427577/Proyecto.con.la.Fundacion.Deporte.Sin.Barreras.y.el.Colegio.Oficial.de.Fisioterapeutas.de.La.Rioja.zip)
+
+398. Título: Consejo de Gobierno | Hora de inicio 11.30
+
+     Enlace: https://www.youtube.com/watch?v=44U51wC5CR4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=401
+
+     Subtítulos: [Consejo de Gobierno  Hora de inicio 11.30.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427736/Consejo.de.Gobierno.Hora.de.inicio.11.30.zip)
+
+399. Título: Presentación de los cursos de formación de profesionales para la atención de víctimas de trata
+
+     Enlace: https://www.youtube.com/watch?v=nuv6wQGVydA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=402
+     
+     Subtítulos: [Presentación de los cursos de formación de profesionales para la atención de víctimas de trata.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427754/Presentacion.de.los.cursos.de.formacion.de.profesionales.para.la.atencion.de.victimas.de.trata.zip)
+
+400. Título: Presentación de la nueva campaña de captación de voluntarios y voluntarias en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=54619czGYPI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=403
+     
+     Subtítulos: [Presentación de la nueva campaña de captación de voluntarios y voluntarias en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427758/Presentacion.de.la.nueva.campana.de.captacion.de.voluntarios.y.voluntarias.en.La.Rioja.zip)
+
+401. Título: 2021 06 18 Visita a Calahorra
+
+     Enlace: https://www.youtube.com/watch?v=ph4T6o_DfFQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=404
+     
+     Subtítulos: [2021 06 18 Visita a Calahorra.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427761/2021.06.18.Visita.a.Calahorra.zip)
+
+402. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=6HlOzOXCiCY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=405
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427765/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.3.zip)
+
+403. Título: Presentación de la nueva oferta de Formación Profesional para el próximo curso
+
+     Enlace: https://www.youtube.com/watch?v=XU6qQSVLGJA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=406
+     
+     Subtítulos: [Presentación de la nueva oferta de Formación Profesional para el próximo curso.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427767/Presentacion.de.la.nueva.oferta.de.Formacion.Profesional.para.el.proximo.curso.zip)
+
+404. Título: Información sobre la línea de ayudas Covid
+
+     Enlace: https://www.youtube.com/watch?v=xuwO4KFSOIc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=407
+     
+     Subtítulos: [Información sobre la línea de ayudas Covid.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427772/Informacion.sobre.la.linea.de.ayudas.Covid.zip)
+
+405. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=OLieKAnmGvQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=408
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (35).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427774/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.35.zip)
+
+406. Título: Presentación de los convenios de colaboración con los clubes deportivos de referencia de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=_eP-R0QjCfU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=409
+     
+     Subtítulo: [Presentación de los convenios de colaboración con los clubes deportivos de referencia de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427776/Presentacion.de.los.convenios.de.colaboracion.con.los.clubes.deportivos.de.referencia.de.La.Rioja.zip)
+
+407. Título: El Gobierno de La Rioja se desplaza a las zonas afectadas por las tormentas
+
+     Enlace: https://www.youtube.com/watch?v=tzqKazrqrtY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=410
+     
+     Subtítulos: [El Gobierno de La Rioja se desplaza a las zonas afectadas por las tormentas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427780/El.Gobierno.de.La.Rioja.se.desplaza.a.las.zonas.afectadas.por.las.tormentas.zip)
+
+408. Título: Firma del Convenio de Cabeceras de Comarca
+
+     Enlace: https://www.youtube.com/watch?v=BVDA4VDupZM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=411
+     
+     Subtítulos: [Firma del Convenio de Cabeceras de Comarca.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427783/Firma.del.Convenio.de.Cabeceras.de.Comarca.zip)
+
+409. Título: Firma del Convenio de Capitalidad
+
+     Enlace: https://www.youtube.com/watch?v=XrWZLaAgpZ8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=412
+     
+     Subtítulos: [Firma del Convenio de Capitalidad (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427786/Firma.del.Convenio.de.Capitalidad.2.zip)
+
+410. Título: Celebración del acto institucional del Día de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=o7MWuc2-1Kc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=413
+     
+     Subtítulos: [Celebración del acto institucional del Día de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427795/Celebracion.del.acto.institucional.del.Dia.de.La.Rioja.zip)
+
+411. Título: Nájera 2022
+
+     Enlace: https://www.youtube.com/watch?v=S_E_sOuGtJo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=414
+     
+     Subtítulos: [Nájera 2022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427797/Najera.2022.zip)
+
+412. Título: MEDALLA DE LA RIOJA
+
+     Enlace: https://www.youtube.com/watch?v=UcWayrZS80U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=415
+     
+     Subtítulos: [MEDALLA DE LA RIOJA.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427801/MEDALLA.DE.LA.RIOJA.zip)
+
+413. Título: RIOJANO ILUSTRE
+
+     Enlace: https://www.youtube.com/watch?v=_LOAh4wnSrw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=416
+     
+     Subtítulos: [RIOJANO ILUSTRE.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427805/RIOJANO.ILUSTRE.zip)
+
+414. Título: Día de La Rioja 2021
+
+     Enlace: https://www.youtube.com/watch?v=wLDaMZCNKAo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=417
+     
+     Subtítulos: [Día de La Rioja 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427807/Dia.de.La.Rioja.2021.zip)
+
+415. Título: MEDALLA DE LA RIOJA
+
+     Enlace: https://www.youtube.com/watch?v=er8G8XaV8yE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=418
+     
+     Subtítulos: [MEDALLA DE LA RIOJA (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427814/MEDALLA.DE.LA.RIOJA.2.zip)
+
+416. Título: Acto institucional del Día de La Rioja 2021
+
+     Enlace: https://www.youtube.com/watch?v=QWjDlZmibR0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=419
+     
+     Subtítulos: [Acto institucional del Día de La Rioja 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427883/Acto.institucional.del.Dia.de.La.Rioja.2021.zip)
+
+417. Título: VIII Conferencia Ambiental Escolar de La Rioja (Confint)
+
+     Enlace: https://www.youtube.com/watch?v=jER2M1sn5CQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=420
+     
+     Subtítulos: [VIII Conferencia Ambiental Escolar de La Rioja (Confint).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427886/VIII.Conferencia.Ambiental.Escolar.de.La.Rioja.Confint.zip)
+
+418. Título: Visita el punto de vacunación
+
+     Enlace: https://www.youtube.com/watch?v=p7z0JtHNT4s&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=421
+     
+     Subtítulos: [Visita el punto de vacunación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427893/Visita.el.punto.de.vacunacion.zip)
+
+419. Título: Subvenciones del Gobierno de La Rioja para fomentar la eficiencia energética en los municipios
+
+     Enlace: https://www.youtube.com/watch?v=vSuJorbVNUw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=422
+     
+     Subtítulos: [Subvenciones del Gobierno de La Rioja para fomentar la eficiencia energética en los municipios.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10427896/Subvenciones.del.Gobierno.de.La.Rioja.para.fomentar.la.eficiencia.energetica.en.los.municipios.zip)
+
+420. Título: Presentación del nuevo modelo de Atención Continuada de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=7Iy7cloLrTY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=423
+     
+     Subtítulos: [Presentación del nuevo modelo de Atención Continuada de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428001/Presentacion.del.nuevo.modelo.de.Atencion.Continuada.de.La.Rioja.zip)
+
+421. Título: Visita al CEIP Villa Patro en el marco del Día Mundial del Medio Ambiente
+
+     Enlace: https://www.youtube.com/watch?v=AjPv0vdP85Y&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=424
+     
+     Subtítulos: [Visita al CEIP Villa Patro en el marco del Día Mundial del Medio Ambiente.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428003/Visita.al.CEIP.Villa.Patro.en.el.marco.del.Dia.Mundial.del.Medio.Ambiente.zip)
+
+422. Título: Entrega de premios del concurso dirigido a la escuela rural ‘Somos Cracks’
+
+     Enlace: https://www.youtube.com/watch?v=9sievNFpBpQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=425
+     
+     Subtítulos: [Entrega de premios del concurso dirigido a la escuela rural ‘Somos Cracks’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428007/Entrega.de.premios.del.concurso.dirigido.a.la.escuela.rural.Somos.Cracks.zip)
+
+423. Título: Firma del convenio dentro de la Ponencia para el seguimiento del Pacto de las Infraestructuras
+
+     Enlace: https://www.youtube.com/watch?v=XK5G2f_8Qfo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=426
+     
+     Subtítulos: [Firma del convenio dentro de la Ponencia para el seguimiento del Pacto de las Infraestructuras.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428017/Firma.del.convenio.dentro.de.la.Ponencia.para.el.seguimiento.del.Pacto.de.las.Infraestructuras.zip)
+
+424. Título: Parlamento de La Rioja | Evolución del desempleo en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=9llGvFK74S4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=427
+     
+     Subtítulos: [Parlamento de La Rioja  Evolución del desempleo en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428019/Parlamento.de.La.Rioja.Evolucion.del.desempleo.en.La.Rioja.zip)
+
+425. Título: Visita a los servicios de radiología del Hospital San Pedro
+
+     Enlace: https://www.youtube.com/watch?v=tS7bFOAUlos&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=428
+     
+     Subtítulos: [Visita a los servicios de radiología del Hospital San Pedro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428021/Visita.a.los.servicios.de.radiologia.del.Hospital.San.Pedro.zip)
+
+426. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=9CDldw7yu_M&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=429
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (36).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428024/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.36.zip)
+
+427. Título: Firma del convenio de colaboración sobre asistencia sanitaria con Navarra
+
+     Enlace: https://www.youtube.com/watch?v=oQrY_2eARkE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=430
+     
+     Subtítulos: [Firma del convenio de colaboración sobre asistencia sanitaria con Navarra.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428060/Firma.del.convenio.de.colaboracion.sobre.asistencia.sanitaria.con.Navarra.zip)
+
+428. Título: Presentación del borrador del Proyecto de Ley contra la Violencia de Género en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=XK3zdrOccA0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=431
+
+     Subtítulos: [Presentación del borrador del Proyecto de Ley contra la Violencia de Género en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428139/Presentacion.del.borrador.del.Proyecto.de.Ley.contra.la.Violencia.de.Genero.en.La.Rioja.zip)
+
+429. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=UKrORCMcESk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=432
+     [Plan de a vacunación frente al COVID-19 en La Rioja (4).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428149/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.4.zip)
+
+     Subtítulos: [Uploading Plan de a vacunación frente al COVID-19 en La Rioja (4).zip…]()
+
+430. Título: Conclusiones de los debates ciudadanos 'Conferencia sobre el futuro de Europa'
+
+     Enlace: https://www.youtube.com/watch?v=-p2hnjmt50Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=433
+     
+     Subtítulos: [Conclusiones de los debates ciudadanos 'Conferencia sobre el futuro de Europa'.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428424/Conclusiones.de.los.debates.ciudadanos.Conferencia.sobre.el.futuro.de.Europa.zip)
+
+431. Título: Información sobre el mecanismo REACT-UE
+
+     Enlace: https://www.youtube.com/watch?v=kgeQVd1bIcs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=434
+     
+     Subtítulos: [Información sobre el mecanismo REACT-UE.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428432/Informacion.sobre.el.mecanismo.REACT-UE.zip)
+
+432. Título: Ley de Mecenazgo de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=tvPkPPbrOnk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=435
+     
+     Subtítulos: [Ley de Mecenazgo de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428436/Ley.de.Mecenazgo.de.La.Rioja.zip)
+
+433. Título: Curso práctico impartido por el Centro de Adiestramientos Especiales
+
+     Enlace: https://www.youtube.com/watch?v=yoeswllyODk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=436
+     
+     Subtítulos: [Curso práctico impartido por el Centro de Adiestramientos Especiales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428442/Curso.practico.impartido.por.el.Centro.de.Adiestramientos.Especiales.zip)
+
+434. Título: Presentación del concierto solidario de la Leioa Kantika Korala
+
+     Enlace: https://www.youtube.com/watch?v=cId-tSFTmKE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=437
+     
+     Subtítulos: [Presentación del concierto solidario de la Leioa Kantika Korala.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428445/Presentacion.del.concierto.solidario.de.la.Leioa.Kantika.Korala.zip)
+
+435. Título: Conferencia Futuro de Europa
+
+     Enlace: https://www.youtube.com/watch?v=rGgZCF6olZ4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=438
+     
+     Subtítulos: [Conferencia Futuro de Europa.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428447/Conferencia.Futuro.de.Europa.zip)
+
+436. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=6CpED9tPT60&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=439
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (37).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428448/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.37.zip)
+
+437. Título: Anuncio de la construcción de un Centro de Día y de Participación Activa en Haro
+
+     Enlace: https://www.youtube.com/watch?v=UMRJ0W6SyZE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=440
+     
+     Subtítulos: [Anuncio de la construcción de un Centro de Día y de Participación Activa en Haro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428452/Anuncio.de.la.construccion.de.un.Centro.de.Dia.y.de.Participacion.Activa.en.Haro.zip)
+
+438. Título: Presentación de actuaciones por la XXII Semana sin humo y el Día Mundial sin Tabaco
+
+     Enlace: https://www.youtube.com/watch?v=3A1Veu93aV8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=441
+     
+     Subtítulos: [Presentación de actuaciones por la XXII Semana sin humo y el Día Mundial sin Tabaco.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428456/Presentacion.de.actuaciones.por.la.XXII.Semana.sin.humo.y.el.Dia.Mundial.sin.Tabaco.zip)
+
+439. Título: Presentación del proyecto de Ley del juego
+
+     Enlace: https://www.youtube.com/watch?v=uhGh8NRTDFM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=442
+     
+     Subtítulos: [Presentación del proyecto de Ley del juego.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428461/Presentacion.del.proyecto.de.Ley.del.juego.zip)
+
+440. Título: Plan de Obras y Servicios aprobado en el último Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=Gkx6Zfd5yiw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=443
+     
+     Subtítulos: [Plan de Obras y Servicios aprobado en el último Consejo de Gobierno.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428473/Plan.de.Obras.y.Servicios.aprobado.en.el.ultimo.Consejo.de.Gobierno.zip)
+
+441. Título: Presentación del nuevo proceso de Acreditaciones de las Competencias Profesionales
+
+     Enlace: https://www.youtube.com/watch?v=YOCnXQY-GMU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=444
+     
+     Subtítulos: [Presentación del nuevo proceso de Acreditaciones de las Competencias Profesionales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428478/Presentacion.del.nuevo.proceso.de.Acreditaciones.de.las.Competencias.Profesionales.zip)
+
+442. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=OkBeeA6CLJ8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=445
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (5).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428484/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.5.zip)
+
+443. Título: Convenio en materia de asistencia sanitaria entre La Rioja y la Comunidad Foral de Navarra
+
+     Enlace: https://www.youtube.com/watch?v=-Pk89LNEMwA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=446
+     
+     Subtítulos: [Convenio en materia de asistencia sanitaria entre La Rioja y la Comunidad Foral de Navarra.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428487/Convenio.en.materia.de.asistencia.sanitaria.entre.La.Rioja.y.la.Comunidad.Foral.de.Navarra.zip)
+
+444. Título: La Rioja inicia los debates sobre el futuro de Europa en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=xY-21JqaEPg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=447
+     
+     Subtítulos: [La Rioja inicia los debates sobre el futuro de Europa en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428489/La.Rioja.inicia.los.debates.sobre.el.futuro.de.Europa.en.La.Rioja.zip)
+
+445. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=eAGNZRZ6jeo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=448
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (38).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428492/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.38.zip)
+
+446. Título: Visita a las actividades del Día Internacional de los Museos
+
+     Enlace: https://www.youtube.com/watch?v=8Iz3japaLQo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=449
+     
+     Subtítulos: [Visita a las actividades del Día Internacional de los Museos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428496/Visita.a.las.actividades.del.Dia.Internacional.de.los.Museos.zip)
+
+447. Título: Últimas actuaciones de la Fundación Tutelar de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Yte2MGL89WU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=450
+     
+     Subtítulos: [Últimas actuaciones de la Fundación Tutelar de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428504/Ultimas.actuaciones.de.la.Fundacion.Tutelar.de.La.Rioja.zip)
+
+448. Título: Presentación de las actividades de La Rioja en FITUR 2021
+
+     Enlace: https://www.youtube.com/watch?v=WrXrL9iRGcw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=451
+     
+     Subtítulos: [Presentación de las actividades de La Rioja en FITUR 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428508/Presentacion.de.las.actividades.de.La.Rioja.en.FITUR.2021.zip)
+
+449. Título: Presentación del Día de los Museos
+
+     Enlace: https://www.youtube.com/watch?v=PqbQGC7HFTA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=452
+     
+     Subtítulos: [Presentación del Día de los Museos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428513/Presentacion.del.Dia.de.los.Museos.zip)
+
+450. Título: Un medio rural vivo y sostenible
+
+     Enlace: https://www.youtube.com/watch?v=YrahIjRg_dM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=453
+     
+     Subtítulos: [Un medio rural vivo y sostenible.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428529/Un.medio.rural.vivo.y.sostenible.zip)
+
+451. Título: Día Internacional de las Familias
+
+     Enlace: https://www.youtube.com/watch?v=LIe3odZmKQU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=454
+     
+     Subtítulos: [Día Internacional de las Familias.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428537/Dia.Internacional.de.las.Familias.zip)
+
+452. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: ttps://www.youtube.com/watch?v=YHBviCWV7ME&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=455
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (6).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428535/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.6.zip)
+
+453. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=S21Fsf9XQRM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=456
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (39).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428541/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.39.zip)
+
+454. Título: Visita al entorno de Valdegutur para impulsar el programa ‘Rutas del Silencio’
+
+     Enlace: https://www.youtube.com/watch?v=PVFjWsdV2Ew&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=457
+     
+     Subtítulos: [Visita al entorno de Valdegutur para impulsar el programa ‘Rutas del Silencio’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428543/Visita.al.entorno.de.Valdegutur.para.impulsar.el.programa.Rutas.del.Silencio.zip)
+
+455. Título: Proyecto piloto para reducir los accidentes de tráfico provocados por fauna silvestre
+
+     Enlace: https://www.youtube.com/watch?v=XxVaSFjOGhE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=458
+     
+     Subtítulos: [Proyecto piloto para reducir los accidentes de tráfico provocados por fauna silvestre.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428545/Proyecto.piloto.para.reducir.los.accidentes.de.trafico.provocados.por.fauna.silvestre.zip)
+
+456. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=rVdgtGItSDw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=459
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (7).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428563/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.7.zip)
+
+457. Título: Anuncio del abono íntegro de las ayudas directas del Plan de Rescate y Plan de Emergencia
+
+     Enlace: https://www.youtube.com/watch?v=gwSDdq74xyY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=460
+     
+     Subtítulos: [Anuncio del abono íntegro de las ayudas directas del Plan de Rescate y Plan de Emergencia.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428567/Anuncio.del.abono.integro.de.las.ayudas.directas.del.Plan.de.Rescate.y.Plan.de.Emergencia.zip)
+
+458. Título: La presidenta Andreu anuncia que la próxima semana comenzará la vacunación a menores de 60 años
+
+     Enlace: https://www.youtube.com/watch?v=E1A11qSCH0c&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=461
+     
+     Subtítulos: [La presidenta Andreu anuncia que la próxima semana comenzará la vacunación a menores de 60 años.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428569/La.presidenta.Andreu.anuncia.que.la.proxima.semana.comenzara.la.vacunacion.a.menores.de.60.anos.zip)
+
+459. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=rGsTKJXaMUc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=462
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (40).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428580/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.40.zip)
+
+460. Título: Visita a la explotación minera de piritas de Navajún
+
+     Enlace: https://www.youtube.com/watch?v=mEanmeUVkIg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=463
+     
+     Subtítulos: [Visita a la explotación minera de piritas de Navajún.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428583/Visita.a.la.explotacion.minera.de.piritas.de.Navajun.zip)
+
+461. Título: Reuniones con representantes políticos, sociales e institucionales
+
+     Enlace: https://www.youtube.com/watch?v=Oorgm3BTECg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=464
+     
+     Subtítulos: [Reuniones con representantes políticos, sociales e institucionales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428589/Reuniones.con.representantes.politicos.sociales.e.institucionales.zip)
+
+462. Título: Presentación del marco normativo tras el final del Estado de Alarma
+
+     Enlace: https://www.youtube.com/watch?v=tj67yhJRj-U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=465
+     
+     Subtítulos: [Presentación del marco normativo tras el final del Estado de Alarma.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428592/Presentacion.del.marco.normativo.tras.el.final.del.Estado.de.Alarma.zip)
+
+463. Título: Presentación del Plan de Estadística de La Rioja 2021-2024
+
+     Enlace: https://www.youtube.com/watch?v=XbuM23UcfV0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=466
+     
+     Subtítulos: [Presentación del Plan de Estadística de La Rioja 2021-2024.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428595/Presentacion.del.Plan.de.Estadistica.de.La.Rioja.2021-2024.zip)
+
+464. Título: Viajar con mascotas en el transporte metropolitano
+
+     Enlace: https://www.youtube.com/watch?v=Hh48O1UY03M&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=467
+     
+     Subtítulos: [Viajar con mascotas en el transporte metropolitano.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428596/Viajar.con.mascotas.en.el.transporte.metropolitano.zip)
+
+465. Título: Viajar con vehículos de movilidad personal en el transporte metropolitano
+ 
+     Enlace: https://www.youtube.com/watch?v=yaS6sIMClO0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=468
+     
+     Subtítulos: [Viajar con vehículos de movilidad personal en el transporte metropolitano.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428599/Viajar.con.vehiculos.de.movilidad.personal.en.el.transporte.metropolitano.zip)
+
+466. Título: FONDOS EUROPEOS
+
+     Enlace: https://www.youtube.com/watch?v=TMDkLZ-tt5U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=469
+     
+     Subtítulos: [FONDOS EUROPEOS.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428601/FONDOS.EUROPEOS.zip)
+
+467. Título: Sabías qué es la Oficina en Bruselas
+
+     Enlace: https://www.youtube.com/watch?v=WgIinNehibM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=470
+     
+     Subtítulos: [Sabías qué es la Oficina en Bruselas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428603/Sabias.que.es.la.Oficina.en.Bruselas.zip)
+
+468. Título: Sabías qué es el Next Generation EU
+
+     Enlace: https://www.youtube.com/watch?v=-OzItX_1TgA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=471
+     
+     Subtítulos: [Sabías qué es el Next Generation EU.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428606/Sabias.que.es.el.Next.Generation.EU.zip)
+
+469. Título: Sabías qué tenemos una DG de Fondos Europeos
+
+     Enlace: https://www.youtube.com/watch?v=NJUUkFhzPsM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=472
+     
+     Subtítulos: [Sabías qué tenemos una DG de Fondos Europeos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428608/Sabias.que.tenemos.una.DG.de.Fondos.Europeos.zip)
+
+470. Título: Sabías qué es el pacto Verde Europeo
+
+     Enlace: https://www.youtube.com/watch?v=aKxU3YF8Chc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=473
+
+     Subtítulos: [Sabías qué es el pacto Verde Europeo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428611/Sabias.que.es.el.pacto.Verde.Europeo.zip)
+
+471. Título: Plan de a vacunación frente al COVID-19 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=CbqCR9j0wHc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=474
+     
+     Subtítulos: [Plan de a vacunación frente al COVID-19 en La Rioja (8).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428616/Plan.de.a.vacunacion.frente.al.COVID-19.en.La.Rioja.8.zip)
+
+472. Título: Rueda de prensa nuevas tarifas y bonificaciones en el transporte metropolitano
+
+     Enlace: https://www.youtube.com/watch?v=coGfY2sb7q0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=475
+     
+     Subtítulos: [Rueda de prensa nuevas tarifas y bonificaciones en el transporte metropolitano.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428617/Rueda.de.prensa.nuevas.tarifas.y.bonificaciones.en.el.transporte.metropolitano.zip)
+
+473. Título: Presentación del primer número de la revista Economía Riojana
+
+     Enlace: https://www.youtube.com/watch?v=laOpKFp_7Bg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=476
+     
+     Subtítulos: [Presentación del primer número de la revista Economía Riojana.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428622/Presentacion.del.primer.numero.de.la.revista.Economia.Riojana.zip)
+
+474. Título: Firma del convenio de colaboración entre Servicios Sociales, Gobierno y Ayuntamiento de Logroño
+
+     Enlace: https://www.youtube.com/watch?v=UHwXYEhNwMY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=477
+     
+     Subtítulos: [Firma del convenio de colaboración entre Servicios Sociales, Gobierno y Ayuntamiento de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428635/Firma.del.convenio.de.colaboracion.entre.Servicios.Sociales.Gobierno.y.Ayuntamiento.de.Logrono.zip)
+
+475. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=zTrxjuWoDQI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=478
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (41).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428631/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.41.zip)
+
+476. Título: Visita de la ministra de Sanidad
+
+     Enlace: https://www.youtube.com/watch?v=CNVa-2DhSiM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=479
+     
+     Subtítulos: [Visita de la ministra de Sanidad.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428644/Visita.de.la.ministra.de.Sanidad.zip)
+
+477. Título: Acto de entrega de banderas ‘Centros Educativos Hacia la Sostenibilidad’
+
+     Enlace: https://www.youtube.com/watch?v=JzRioMmGwVo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=480
+     
+     Subtítulos: [Acto de entrega de banderas ‘Centros Educativos Hacia la Sostenibilidad’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428654/Acto.de.entrega.de.banderas.Centros.Educativos.Hacia.la.Sostenibilidad.zip)
+
+478. Título: Escolarización en La Rioja para el curso 2021/2022
+
+     Enlace: https://www.youtube.com/watch?v=QEP5gViFbAs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=481
+     
+     Subtítulos: [Escolarización en La Rioja para el curso 20212022.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428656/Escolarizacion.en.La.Rioja.para.el.curso.20212022.zip)
+
+479. Título: Inauguración de la Exposición 'Ricardo, Balilla y Pirracas' sobre el primer cómic de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=63mIBJ3TDO4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=482
+     
+     Subtítulos: [Inauguración de la Exposición 'Ricardo, Balilla y Pirracas' sobre el primer cómic de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428658/Inauguracion.de.la.Exposicion.Ricardo.Balilla.y.Pirracas.sobre.el.primer.comic.de.La.Rioja.zip)
+
+480. Título: Presentación de la renovación del SERIS
+
+     Enlace: https://www.youtube.com/watch?v=spUS4eC51UY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=483
+     
+     Subtítulos: [Presentación de la renovación del SERIS.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10428661/Presentacion.de.la.renovacion.del.SERIS.zip)
+
+481. Título: Ganadores del Concurso de fotografía de ‘Naturaleza de La Rioja’
+
+     Enlace: https://www.youtube.com/watch?v=DkstYVgoigc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=484
+     
+     Subtítulos: [Ganadores del Concurso de fotografía de ‘Naturaleza de La Rioja’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432911/Ganadores.del.Concurso.de.fotografia.de.Naturaleza.de.La.Rioja.zip)
+
+482. Título: Entrega de premios a los ganadores del Concurso ‘Experimenta en casa’
+
+     Enlace: https://www.youtube.com/watch?v=rLg0Jtj-Yyw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=485
+     
+     Subtítulos: [Entrega de premios a los ganadores del Concurso ‘Experimenta en casa’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432917/Entrega.de.premios.a.los.ganadores.del.Concurso.Experimenta.en.casa.zip)
+
+483. Título: Valoración del Plan de a vacunación de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=ZaHqzBd8s3I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=486
+     
+     Subtítulos: [Valoración del Plan de a vacunación de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432924/Valoracion.del.Plan.de.a.vacunacion.de.La.Rioja.zip)
+
+484. Título: Presentación del nuevo Decreto de Escolarización de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=kxV4PXtrMyc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=487
+     
+     Subtítulos: [Presentación del nuevo Decreto de Escolarización de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432925/Presentacion.del.nuevo.Decreto.de.Escolarizacion.de.La.Rioja.zip)
+
+485. Título: Convocatoria de ayudas a la rehabilitación edificatoria de 2021
+
+     Enlace: https://www.youtube.com/watch?v=hNDzvIkGjKk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=488
+     
+     Subtítulos: [Convocatoria de ayudas a la rehabilitación edificatoria de 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432927/Convocatoria.de.ayudas.a.la.rehabilitacion.edificatoria.de.2021.zip)
+
+486. Título: Información sobre la refinanciación de préstamos
+
+     Enlace: https://www.youtube.com/watch?v=7KtC4xc2JuE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=489
+     
+     Subtítulos: [Información sobre la refinanciación de préstamos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432931/Informacion.sobre.la.refinanciacion.de.prestamos.zip)
+
+487. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=Q6sP_JF9Hoc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=490
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (42).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432935/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.42.zip)
+
+488. Título: Empresas y fundaciones que favorecen la inserción laboral de mujeres víctimas de violencia de género
+
+     Enlace: https://www.youtube.com/watch?v=Luz0LKINvHI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=491
+     
+     Subtítulos: [Empresas y fundaciones que favorecen la inserción laboral de mujeres víctimas de violencia de género.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432941/Empresas.y.fundaciones.que.favorecen.la.insercion.laboral.de.mujeres.victimas.de.violencia.de.genero.zip)
+
+489. Título: Actuaciones de innovación con la Agrupación Empresarial Innovadora de la Industria Alimentaria
+
+     Enlace: https://www.youtube.com/watch?v=-LpPzsIcO1U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=492
+     
+     Subtítulos: [Actuaciones de innovación con la Agrupación Empresarial Innovadora de la Industria Alimentaria.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432948/Actuaciones.de.innovacion.con.la.Agrupacion.Empresarial.Innovadora.de.la.Industria.Alimentaria.zip)
+
+490. Título: visitan el final de obra de la carretera LR-206 correspondiente a la travesía de Berceo
+
+     Enlace: https://www.youtube.com/watch?v=xMTO0EOcm5Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=493
+     
+     Subtítulos: [visitan el final de obra de la carretera LR-206 correspondiente a la travesía de Berceo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432970/visitan.el.final.de.obra.de.la.carretera.LR-206.correspondiente.a.la.travesia.de.Berceo.zip)
+
+491. Título: Nuevas actuaciones sobre la política pública de vivienda
+
+     Enlace: https://www.youtube.com/watch?v=-NTYN__M--0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=494
+     
+     Subtítulos: [Nuevas actuaciones sobre la política pública de vivienda.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432989/Nuevas.actuaciones.sobre.la.politica.publica.de.vivienda.zip)
+
+492. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=hnkVtTj6IzY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=495
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (43).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432978/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.43.zip)
+
+493. Título: Final de obras en el barranco de La Pasadilla en Corera
+
+     Enlace: https://www.youtube.com/watch?v=YYKO4dN2AiM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=496
+     
+     Subtítulos: [Final de obras en el barranco de La Pasadilla en Corera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10432999/Final.de.obras.en.el.barranco.de.La.Pasadilla.en.Corera.zip)
+
+494. Título: Restauración fluvial del Ebro en el paraje de La Nava
+
+     Enlace: https://www.youtube.com/watch?v=M1BE8ZHWEeU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=497
+     
+     Subtítulos: [Restauración fluvial del Ebro en el paraje de La Nava.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433004/Restauracion.fluvial.del.Ebro.en.el.paraje.de.La.Nava.zip)
+
+495. Título: Balance del uso del transporte público de La Rioja en 2020
+
+     Enlace: https://www.youtube.com/watch?v=l1dGpAsTm4o&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=498
+     
+     Subtítulos: [Balance del uso del transporte público de La Rioja en 2020.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433009/Balance.del.uso.del.transporte.publico.de.La.Rioja.en.2020.zip)
+
+496. Título: Rueda de prensa para informar sobre los asuntos aprobados en el Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=wVTzMzkjim0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=499
+     
+     Subtítulos: [Rueda de prensa para informar sobre los asuntos aprobados en el Consejo de Gobierno.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433019/Rueda.de.prensa.para.informar.sobre.los.asuntos.aprobados.en.el.Consejo.de.Gobierno.zip)
+
+497. Título: Presentación de la programación de primavera del festival de teatro familiar 'Teatrea'
+
+     Enlace: https://www.youtube.com/watch?v=zGfiD35rH_A&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=500
+     
+     Subtítulos: [Presentación de la programación de primavera del festival de teatro familiar 'Teatrea'.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433026/Presentacion.de.la.programacion.de.primavera.del.festival.de.teatro.familiar.Teatrea.zip)
+
+498. Título: Parlamento de La Rioja | Denominación de Origen Protegida "Arabako Mahastiak/Viñedos de Álava" /2
+
+     Enlace: https://www.youtube.com/watch?v=iRzqPI9TpxM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=501
+     
+     Subtítulos: [Parlamento de La Rioja  Denominación de Origen Protegida Arabako MahastiakViñedos de Álava 2.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433035/Parlamento.de.La.Rioja.Denominacion.de.Origen.Protegida.Arabako.MahastiakVinedos.de.Alava.2.zip)
+
+499. Título: Parlamento de La Rioja | Plan de Formación y Empleo.
+
+     Enlace: https://www.youtube.com/watch?v=IuPFe1zD3V4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=502
+     
+     Subtítulos: [Parlamento de La Rioja  Plan de Formación y Empleo..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433041/Parlamento.de.La.Rioja.Plan.de.Formacion.y.Empleo.zip)
+
+500. Título: Parlamento de La Rioja | Denominación de Origen Protegida "Arabako Mahastiak/Viñedos de Álava" /1
+
+     Enlace: https://www.youtube.com/watch?v=g8avreNXdOo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=503
+     
+     Subtítulos: [Parlamento de La Rioja  Denominación de Origen Protegida Arabako MahastiakViñedos de Álava 1.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433064/Parlamento.de.La.Rioja.Denominacion.de.Origen.Protegida.Arabako.MahastiakVinedos.de.Alava.1.zip)
+
+501. Título: Parlamento de La Rioja | Acto organizado por a Asociación de Víctimas del Terrorismo.
+
+     Enlace: https://www.youtube.com/watch?v=wT4gC_iCIic&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=504
+     
+     Subtítulos: [Parlamento de La Rioja  Acto organizado por a Asociación de Víctimas del Terrorismo..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433070/Parlamento.de.La.Rioja.Acto.organizado.por.a.Asociacion.de.Victimas.del.Terrorismo.zip)
+
+502. Título: Parlamento de La Rioja | Gestión de los fondos europeos
+
+     Enlace: https://www.youtube.com/watch?v=BWX0m1xS724&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=505
+     
+     Subtítulos: [Parlamento de La Rioja  Gestión de los fondos europeos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433082/Parlamento.de.La.Rioja.Gestion.de.los.fondos.europeos.zip)
+
+503. Título: Información sobre las becas de movilidad para estudios universitarios fuera de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=BYteg4Sx9d4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=506
+     
+     Subtítulos: [Información sobre las becas de movilidad para estudios universitarios fuera de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433095/Informacion.sobre.las.becas.de.movilidad.para.estudios.universitarios.fuera.de.La.Rioja.zip)
+
+504. Título: Información sobre las nuevas líneas de subvenciones en materia de Juventud
+
+     Enlace: https://www.youtube.com/watch?v=DCaILNENp6Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=507
+     
+     Subtítulos: [Información sobre las nuevas líneas de subvenciones en materia de Juventud.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433104/Informacion.sobre.las.nuevas.lineas.de.subvenciones.en.materia.de.Juventud.zip)
+
+505. Título: Declaraciones previas a la celebración del CECOR
+
+     Enlace: https://www.youtube.com/watch?v=l5C5lBptpD8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=508
+     
+     Subtítulos: [Declaraciones previas a la celebración del CECOR.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433110/Declaraciones.previas.a.la.celebracion.del.CECOR.zip)
+
+506. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=RkGL2QTxmlk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=509
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (44).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433116/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.44.zip)
+
+507. Título: Incremento de las subvenciones a los pequeños municipios de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=CnFb8bK3pXA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=510
+     
+     Subtítulos: [Incremento de las subvenciones a los pequeños municipios de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433123/Incremento.de.las.subvenciones.a.los.pequenos.municipios.de.La.Rioja.zip)
+
+508. Título: Bloque 3: generar y firmar el Cuaderno de Explotación
+
+     Enlace: https://www.youtube.com/watch?v=8iLQEl6R8Xo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=511
+     
+     Subtítulos: [Bloque 3 generar y firmar el Cuaderno de Explotación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433132/Bloque.3.generar.y.firmar.el.Cuaderno.de.Explotacion.zip)
+
+509. Título: Bloque 2 Cuaderno de Explotación Telemático: anotaciones
+
+     Enlace: https://www.youtube.com/watch?v=uax3ckRX5Nc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=512
+     
+     Subtítulos: [Bloque 2 Cuaderno de Explotación Telemático anotaciones.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433138/Bloque.2.Cuaderno.de.Explotacion.Telematico.anotaciones.zip)
+
+510. Título: Bloque 1. Cuaderno de Explotación telemático
+
+     Enlace: https://www.youtube.com/watch?v=4H3qLGBe1Jc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=513
+     
+     Subtítulos: [Bloque 1. Cuaderno de Explotación telemático.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433140/Bloque.1.Cuaderno.de.Explotacion.telematico.zip)
+
+511. Título: Introducción al Cuaderno de explotación telemático Cue
+
+     Enlace: https://www.youtube.com/watch?v=wuzIJg4rZ58&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=514
+     
+     Subtítulos: [Introducción al Cuaderno de explotación telemático Cue.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433146/Introduccion.al.Cuaderno.de.explotacion.telematico.Cue.zip)
+
+512. Título: Visita a la compañía Starglass
+
+     Enlace: https://www.youtube.com/watch?v=MKi4ghEN4SI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=515
+     
+     Subtítulos: [Visita a la compañía Starglass.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433150/Visita.a.la.compania.Starglass.zip)
+
+513. Título: 
+     
+     
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
