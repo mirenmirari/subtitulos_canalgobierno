@@ -3079,13 +3079,365 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
      
      Subtítulos: [Visita a la compañía Starglass.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10433150/Visita.a.la.compania.Starglass.zip)
 
-513. Título: 
+513. Título: Presentación en rueda de prensa la nueva edición del festival Sculto
+
+     Enlace: https://www.youtube.com/watch?v=0MsMJmnQNWI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=516
      
+     Subtítulos: [Presentación en rueda de prensa la nueva edición del festival Sculto.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434457/Presentacion.en.rueda.de.prensa.la.nueva.edicion.del.festival.Sculto.zip)
+
+514. Título: PROYECTO GEOPARQUE LA RIOJA. Ernesto Domínguez, guía de icnitas
+
+     Enlace: https://www.youtube.com/watch?v=VzQMfjUwD6k&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=517
      
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Ernesto Domínguez, guía de icnitas.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434460/PROYECTO.GEOPARQUE.LA.RIOJA.Ernesto.Dominguez.guia.de.icnitas.zip)
 
+515. Título: PROYECTO GEOPARQUE LA RIOJA. Esperanza García, paleontóloga
 
+     Enlace: https://www.youtube.com/watch?v=o12wBbxA0ZU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=518
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Esperanza García, paleontóloga.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434531/PROYECTO.GEOPARQUE.LA.RIOJA.Esperanza.Garcia.paleontologa.zip)
 
+516. Título: PROYECTO GEOPARQUE LA RIOJA. Arturo Colina, director de Fundación Caja Rioja
 
+     Enlace: https://www.youtube.com/watch?v=2qlnMoMEVv0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=519
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Arturo Colina, director de Fundación Caja Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434534/PROYECTO.GEOPARQUE.LA.RIOJA.Arturo.Colina.director.de.Fundacion.Caja.Rioja.zip)
+
+517. Título: PROYECTO GEOPARQUE LA RIOJA. Mónica Martínez, oficina de Turismo de Arnedillo
+
+     Enlace: https://www.youtube.com/watch?v=wZZv1ygLuBQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=520
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Mónica Martínez, oficina de Turismo de Arnedillo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434542/PROYECTO.GEOPARQUE.LA.RIOJA.Monica.Martinez.oficina.de.Turismo.de.Arnedillo.zip)
+
+518. Título: Apoyo a la ganadería extensiva desde la explotación de Pazuengos
+
+     Enlace: https://www.youtube.com/watch?v=HUhSGPgo3SI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=521
+     
+     Subtítulos: [Apoyo a la ganadería extensiva desde la explotación de Pazuengos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434540/Apoyo.a.la.ganaderia.extensiva.desde.la.explotacion.de.Pazuengos.zip)
+
+519. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=vsQwwqyQ25o&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=522
+    
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (45).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434549/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.45.zip)
+
+520. Título: Presentación del Plan de Formación Profesional y Empleo 2021-2023
+
+     Enlace: https://www.youtube.com/watch?v=fwvhxQ1GA8w&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=523
+     
+     Subtítulos: [Presentación del Plan de Formación Profesional y Empleo 2021-2023.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434554/Presentacion.del.Plan.de.Formacion.Profesional.y.Empleo.2021-2023.zip)
+
+521. Título: Presentación de las convocatorias de subvenciones en materia de Cultura
+
+     Enlace: https://www.youtube.com/watch?v=W7LgHduoMBA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=524
+     
+     Subtítulos: [Presentación de las convocatorias de subvenciones en materia de Cultura.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434556/Presentacion.de.las.convocatorias.de.subvenciones.en.materia.de.Cultura.zip)
+
+522. Título: Encuentro de trabajo ‘LOMLOE: Una ley Educativa para nuestro tiempo’
+
+     Enlace: https://www.youtube.com/watch?v=DeVBcCT5Mus&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=525
+     
+     Subtítulos: [Encuentro de trabajo ‘LOMLOE Una ley Educativa para nuestro tiempo’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434587/Encuentro.de.trabajo.LOMLOE.Una.ley.Educativa.para.nuestro.tiempo.zip)
+
+523. Título: Visita a la depuradora de agua de Herce
+
+     Enlace: https://www.youtube.com/watch?v=PjoLitq5SZ8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=526
+     
+     Subtítulos: [Visita a la depuradora de agua de Herce.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434594/Visita.a.la.depuradora.de.agua.de.Herce.zip)
+
+524. Título: Presentación Campeonato Riojano de Formación Profesional Riojaskills 2021
+
+     Enlace: https://www.youtube.com/watch?v=3hbfyhe9WSI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=527
+     
+     Subtítulos: [Presentación Campeonato Riojano de Formación Profesional Riojaskills 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434604/Presentacion.Campeonato.Riojano.de.Formacion.Profesional.Riojaskills.2021.zip)
+
+525. Título: Adaptación del Centro de Interpretación de Sierra de Cebollera
+
+     Enlace: https://www.youtube.com/watch?v=j9QhXhcmrO4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=528
+     
+     Subtítulos: [Adaptación del Centro de Interpretación de Sierra de Cebollera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434606/Adaptacion.del.Centro.de.Interpretacion.de.Sierra.de.Cebollera.zip)
+
+526. Título: XXVII Patronato de la Fundación Riojana para la Innovación
+
+     Enlace: https://www.youtube.com/watch?v=x8wc85bsvGc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=529
+     
+     Subtítulos: [XXVII Patronato de la Fundación Riojana para la Innovación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434608/XXVII.Patronato.de.la.Fundacion.Riojana.para.la.Innovacion.zip)
+
+527. Título: Nuevas líneas de subvenciones en el ámbito del Deporte riojano
+
+     Enlace: https://www.youtube.com/watch?v=5LXRm83uIv0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=530
+     
+     Subtítulos: [Nuevas líneas de subvenciones en el ámbito del Deporte riojano.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434610/Nuevas.lineas.de.subvenciones.en.el.ambito.del.Deporte.riojano.zip)
+
+528. Título: PROYECTO GEOPARQUE LA RIOJA.  José Manuel Valle, profesor de la Universidad de País Vasco
+
+     Enlace: https://www.youtube.com/watch?v=l_tYGI8kNWk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=531
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA.  José Manuel Valle, profesor de la Universidad de País Vasco.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434622/PROYECTO.GEOPARQUE.LA.RIOJA.Jose.Manuel.Valle.profesor.de.la.Universidad.de.Pais.Vasco.zip)
+
+529. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=TyIsj0Jgthw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=532
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (46).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434618/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.46.zip)
+
+530. Título: PROYECTO GEOPARQUE LA RIOJA. Fidel Torcida, paleontólogo y profesor del I.E.S. Comercio
+
+     Enlace: https://www.youtube.com/watch?v=LRCIShM2juE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=533
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Fidel Torcida, paleontólogo y profesor del I.E.S. Comercio.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434760/PROYECTO.GEOPARQUE.LA.RIOJA.Fidel.Torcida.paleontologo.y.profesor.del.I.E.S.Comercio.zip)
+
+531. Título: Presentación de la programación de la nueva temporada de Riojaforum
+
+     Enlace: https://www.youtube.com/watch?v=CACZ2C7ztFY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=534
+     
+     Subtítulos: [Presentación de la programación de la nueva temporada de Riojaforum.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434765/Presentacion.de.la.programacion.de.la.nueva.temporada.de.Riojaforum.zip)
+
+532. Título: EBAU 2020/2021 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=WPH77XYrcjE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=535
+     
+     Subtítulos: [EBAU 20202021 en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434768/EBAU.20202021.en.La.Rioja.zip)
+
+533. Título: GEOPARQUE LA RIOJA. Kiko Rezola, miembro de asociación de paleontología de la zona
+
+     Enlace: https://www.youtube.com/watch?v=mdlyxbrzHdw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=536
+     
+     Subtítulos: [GEOPARQUE LA RIOJA. Kiko Rezola, miembro de asociación de paleontología de la zona.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434773/GEOPARQUE.LA.RIOJA.Kiko.Rezola.miembro.de.asociacion.de.paleontologia.de.la.zona.zip)
+
+534. Título: PROYECTO GEOPARQUE LA RIOJA. Angélica Torices, Cátedra de Paleontología de Universidad de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=72tlbpOiWNQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=537
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Angélica Torices, Cátedra de Paleontología de Universidad de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434775/PROYECTO.GEOPARQUE.LA.RIOJA.Angelica.Torices.Catedra.de.Paleontologia.de.Universidad.de.La.Rioja.zip)
+
+535. Título: PROYECTO GEOPARQUE LA RIOJA. Patxi Sáez, Centro de Interpretación de Igea
+
+     Enlace: https://www.youtube.com/watch?v=f0U2y7q0Q2A&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=538
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Patxi Sáez, Centro de Interpretación de Igea.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434779/PROYECTO.GEOPARQUE.LA.RIOJA.Patxi.Saez.Centro.de.Interpretacion.de.Igea.zip)
+
+536. Título: Plan de participación en el desarrollo de la Ley de Igualdad de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=OG-6EvwF-qg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=539
+     
+     Subtítulos: [Plan de participación en el desarrollo de la Ley de Igualdad de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434783/Plan.de.participacion.en.el.desarrollo.de.la.Ley.de.Igualdad.de.La.Rioja.zip)
+
+537. Título: Distribución de las subvenciones en materia de servicios sociales
+
+     Enlace: https://www.youtube.com/watch?v=9LLj3GcNRes&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=540
+     
+     Subtítulos: [Distribución de las subvenciones en materia de servicios sociales.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434810/Distribucion.de.las.subvenciones.en.materia.de.servicios.sociales.zip)
+
+538. Título: PROYECTO GEOPARQUE LA RIOJA. Ricardo Ochoa, alcalde de Enciso
+
+     Enlace: https://www.youtube.com/watch?v=pkcoPsCPPkU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=541
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Ricardo Ochoa, alcalde de Enciso.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434816/PROYECTO.GEOPARQUE.LA.RIOJA.Ricardo.Ochoa.alcalde.de.Enciso.zip)
+
+539. Título: PROYECTO GEOPARQUE LA RIOJA. Rubén Esteban, director general Calidad Ambiental y Recursos Hídricos
+
+     Enlace: https://www.youtube.com/watch?v=UCv4oONpKNU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=542
+     
+     Subtítulos: [PROYECTO GEOPARQUE LA RIOJA. Rubén Esteban, director general Calidad Ambiental y Recursos Hídricos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434819/PROYECTO.GEOPARQUE.LA.RIOJA.Ruben.Esteban.director.general.Calidad.Ambiental.y.Recursos.Hidricos.zip)
+
+540. Título: Inversiones del Gobierno de La Rioja en la ciudad de Nájera
+
+     Enlace: https://www.youtube.com/watch?v=ztxNgxZ16Oc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=543
+     
+     Subtítulos: [Inversiones del Gobierno de La Rioja en la ciudad de Nájera.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434878/Inversiones.del.Gobierno.de.La.Rioja.en.la.ciudad.de.Najera.zip)
+
+541. Título: Presentación de la segunda edición del certamen de cortometrajes ‘La Rioja de cine’
+
+     Enlace: https://www.youtube.com/watch?v=lKOLsQ1j9MQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=544
+     
+     Subtítulos: [Presentación de la segunda edición del certamen de cortometrajes ‘La Rioja de cine’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434883/Presentacion.de.la.segunda.edicion.del.certamen.de.cortometrajes.La.Rioja.de.cine.zip)
+
+542. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=IAgLEtqxFGk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=545
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (47).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434888/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.47.zip)
+
+543. Título: Visita proyecto de Asprodema para reforzar la empleabilidad en jóvenes con discapacidad intelectual
+
+     Enlace: https://www.youtube.com/watch?v=yambQ97lT3U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=546
+     
+     Subtítulos: [Visita proyecto de Asprodema para reforzar la empleabilidad en jóvenes con discapacidad intelectual.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434904/Visita.proyecto.de.Asprodema.para.reforzar.la.empleabilidad.en.jovenes.con.discapacidad.intelectual.zip)
+
+544. Título: Reunión del CECOR
+
+     Enlace: https://www.youtube.com/watch?v=JiqwDi81RuU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=547
+     
+     Subtítulos: [Reunión del CECOR.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434910/Reunion.del.CECOR.zip)
+
+545. Título: Presentación del circuito escénico de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=-qoAVD53TFY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=548
+     
+     Subtítulos: [Presentación del circuito escénico de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434914/Presentacion.del.circuito.escenico.de.La.Rioja.zip)
+
+546. Título: Inversiones previstas en materia de Desarrollo Autonómico en el presupuesto de La Rioja 2021
+
+     Enlace: https://www.youtube.com/watch?v=grMH9JyeoS4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=549
+     
+     Subtítulos:[Inversiones previstas en materia de Desarrollo Autonómico en el presupuesto de La Rioja 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434925/Inversiones.previstas.en.materia.de.Desarrollo.Autonomico.en.el.presupuesto.de.La.Rioja.2021.zip)
+
+547. Título: Lectura del manifiesto por el Día Internacional de la Mujer
+
+     Enlace: https://www.youtube.com/watch?v=SsriakKgXV4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=550
+     
+     Subtítulos: [Lectura del manifiesto por el Día Internacional de la Mujer.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434922/Lectura.del.manifiesto.por.el.Dia.Internacional.de.la.Mujer.zip)
+
+548. Título: Aplicación, desarrollo y retos de la nueva Ley Educativa LOMLOE en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=ygrimwc63ZQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=551
+     
+     Subtítulos: [Aplicación, desarrollo y retos de la nueva Ley Educativa LOMLOE en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434933/Aplicacion.desarrollo.y.retos.de.la.nueva.Ley.Educativa.LOMLOE.en.La.Rioja.zip)
+
+549. Título: Intervención de José Angel Lacalzada en el Parlamento de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=khB7owvs0PE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=552
+     
+     Subtítulos: [Intervención de José Angel Lacalzada en el Parlamento de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434939/Intervencion.de.Jose.Angel.Lacalzada.en.el.Parlamento.de.La.Rioja.zip)
+
+550. Título: Preguntas a la presidenta del Gobierno de La Rioja en el Parlamento
+
+     Enlace: https://www.youtube.com/watch?v=MjSYZ4MEOfM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=553
+     
+     Subtítulos: [Preguntas a la presidenta del Gobierno de La Rioja en el Parlamento (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434953/Preguntas.a.la.presidenta.del.Gobierno.de.La.Rioja.en.el.Parlamento.3.zip)
+
+551. Título: Protocolo de lanzamiento de vivienda
+
+     Enlace: https://www.youtube.com/watch?v=ptcRDdzcD28&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=554
+     
+     Subtítulos:      [Protocolo de lanzamiento de vivienda.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434959/Protocolo.de.lanzamiento.de.vivienda.zip)
+
+552. Título: Balance de la evolución de la pandemia del coronavirus en el ámbito de la educación
+
+     Enlace: https://www.youtube.com/watch?v=_iZlQjFTZI0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=555
+     
+     Subtítulos: [Balance de la evolución de la pandemia del coronavirus en el ámbito de la educación.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434964/Balance.de.la.evolucion.de.la.pandemia.del.coronavirus.en.el.ambito.de.la.educacion.zip)
+
+553. Título: Presentación de la iniciativa ‘Redescubre el Museo’
+
+     Enlace: https://www.youtube.com/watch?v=8nvXPbWq7e4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=556
+     
+     Subtítulos: [Presentación de la iniciativa ‘Redescubre el Museo’.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434971/Presentacion.de.la.iniciativa.Redescubre.el.Museo.zip)
+
+554. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=4toXrW5O-08&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=557
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (48).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10434997/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.48.zip)
+
+555. Título: Reportaje: Unidad COVID Itinerante de Educación en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=-mcZ8M4ZYF8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=558
+     
+     Subtítulos: [Reportaje Unidad COVID Itinerante de Educación en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435006/Reportaje.Unidad.COVID.Itinerante.de.Educacion.en.La.Rioja.zip)
+
+556. Título: Presentación del Plan de Transformación de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=E58_IltGPlE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=559
+     
+     Subtítulos: [Presentación del Plan de Transformación de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435019/Presentacion.del.Plan.de.Transformacion.de.La.Rioja.zip)
+
+557. Título: Rueda de prensa - Presupuestos La Rioja 2021 - Sostenibilidad
+
+     Enlace: https://www.youtube.com/watch?v=aLZiMHiH7Q4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=560
+     
+     Subtítulos: [Rueda de prensa - Presupuestos La Rioja 2021 - Sostenibilidad.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435013/Rueda.de.prensa.-.Presupuestos.La.Rioja.2021.-.Sostenibilidad.zip)
+
+558. Título: Inversiones del Gobierno de La Rioja en la ciudad de Haro
+
+     Enlace: https://www.youtube.com/watch?v=Tm3AOMdnZlg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=561
+     
+     Subtítulos: [Inversiones del Gobierno de La Rioja en la ciudad de Haro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435032/Inversiones.del.Gobierno.de.La.Rioja.en.la.ciudad.de.Haro.zip)
+
+559. Título: Presentación de la campaña del Gobierno de La Rioja por el Día Internacional de las Mujeres
+
+     Enlace: https://www.youtube.com/watch?v=4nVQ7Ru6tpA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=562
+     
+     Subtítulos: [Presentación de la campaña del Gobierno de La Rioja por el Día Internacional de las Mujeres.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435034/Presentacion.de.la.campana.del.Gobierno.de.La.Rioja.por.el.Dia.Internacional.de.las.Mujeres.zip)
+
+560. Título: Visita del ministro José Luis Ábalos
+
+     Enlace: https://www.youtube.com/watch?v=aVgQ8pQYIg4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=563
+     
+     Subtítulos: [Visita del ministro José Luis Ábalos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435051/Visita.del.ministro.Jose.Luis.Abalos.zip)
+
+561. Título: Rueda de prensa junto al ministro de Transportes, Movilidad y Agenda Urbana
+
+     Enlace: https://www.youtube.com/watch?v=Hvpgcb1mEIE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=564
+     
+     Subtítulos: [Rueda de prensa junto al ministro de Transportes, Movilidad y Agenda Urbana.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435060/Rueda.de.prensa.junto.al.ministro.de.Transportes.Movilidad.y.Agenda.Urbana.zip)
+
+562. Título: Inversiones previstas en Agricultura, Ganadería y Desarrollo Rural en el presupuesto 2021
+
+     Enlace: https://www.youtube.com/watch?v=V87C_s7TL98&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=565
+     
+     Subtítulos: [Inversiones previstas en Agricultura, Ganadería y Desarrollo Rural en el presupuesto 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435066/Inversiones.previstas.en.Agricultura.Ganaderia.y.Desarrollo.Rural.en.el.presupuesto.2021.zip)
+
+563. Título: Declaraciones sobre la evolución de la pandemia del coronavirus en el ámbito educativo
+
+     Enlace: https://www.youtube.com/watch?v=IlQDC2M0wtQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=566
+     
+     Subtítulos: [Declaraciones sobre la evolución de la pandemia del coronavirus en el ámbito educativo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435073/Declaraciones.sobre.la.evolucion.de.la.pandemia.del.coronavirus.en.el.ambito.educativo.zip)
+
+564. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=-KBXY_KXJoc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=567
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (49).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435075/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.49.zip)
+
+565. Título: Inversiones del Gobierno de La Rioja en la ciudad de Arnedo
+
+     Enlace: https://www.youtube.com/watch?v=aKjLx-b_VBA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=568
+     
+     Subtítulos: [Inversiones del Gobierno de La Rioja en la ciudad de Arnedo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435082/Inversiones.del.Gobierno.de.La.Rioja.en.la.ciudad.de.Arnedo.zip)
+
+566. Título: Inversiones previstas en materia de salud en el presupuesto de La Rioja 2021
+
+     Enlace: https://www.youtube.com/watch?v=L9IVrmDFjys&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=569
+     
+     Subtítulos: [Inversiones previstas en materia de salud en el presupuesto de La Rioja 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435085/Inversiones.previstas.en.materia.de.salud.en.el.presupuesto.de.La.Rioja.2021.zip)
+
+567. Título: Inversiones del Gobierno de La Rioja en la ciudad de Calahorra
+
+     Enlace: https://www.youtube.com/watch?v=dtUe6IIKYYI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=570
+     
+     Subtítulos: [Inversiones del Gobierno de La Rioja en la ciudad de Calahorra.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435087/Inversiones.del.Gobierno.de.La.Rioja.en.la.ciudad.de.Calahorra.zip)
+
+568. Título: Inversiones previstas en materia de vivienda en el presupuesto de La Rioja 2021
+
+     Enlace: https://www.youtube.com/watch?v=1eYZrchFx4s&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=571
+     
+     Subtítulos: [Inversiones previstas en materia de vivienda en el presupuesto de La Rioja 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435092/Inversiones.previstas.en.materia.de.vivienda.en.el.presupuesto.de.La.Rioja.2021.zip)
+
+569. Título: Análisis de la situación de las residencias de personas mayores de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=5_E-mbAFYCk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=572
+     
+     Subtítulos: [Análisis de la situación de las residencias de personas mayores de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435095/Analisis.de.la.situacion.de.las.residencias.de.personas.mayores.de.La.Rioja.zip)
+
+570. Título: Inversiones del Gobierno de La Rioja en la ciudad de Logroño
+
+     Enlace: https://www.youtube.com/watch?v=TbytyUvZ4t0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=573
+     
+     Subtítulos: [Inversiones del Gobierno de La Rioja en la ciudad de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435100/Inversiones.del.Gobierno.de.La.Rioja.en.la.ciudad.de.Logrono.zip)
+
+571. Título: Proceso de certificación de la Reserva de la Biosfera de La Rioja como Destino Turístico Starlight.
+
+     Enlace: https://www.youtube.com/watch?v=_QUQrpIv1fM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=574
+     
+     Subtítulos: [Proceso de certificación de la Reserva de la Biosfera de La Rioja como Destino Turístico Starlight..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435104/Proceso.de.certificacion.de.la.Reserva.de.la.Biosfera.de.La.Rioja.como.Destino.Turistico.Starlight.zip)
+
+572. Título: LOMLOE: EDUCAR EN VALORES Y PLAN DE CONVIVENCIA
+
+     Enlace: https://www.youtube.com/watch?v=skaSSYsL0N8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=575
+     
+     Subtítulos: [LOMLOE EDUCAR EN VALORES Y PLAN DE CONVIVENCIA.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10435109/LOMLOE.EDUCAR.EN.VALORES.Y.PLAN.DE.CONVIVENCIA.zip)
 
 
 
