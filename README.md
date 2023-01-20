@@ -4927,7 +4927,155 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
 
      Enlace: https://www.youtube.com/watch?v=cHydK8c761I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=823
      
-     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (67).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10465874/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.67.zip)
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (68).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466105/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.68.zip)
 
-821. Título:
+821. Título: Visita a la nueva Área Polivalente de Críticos en el Hospital San Pedro de Logroño
+
+     Enlace: https://www.youtube.com/watch?v=pLseRT9N7CA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=824
+     
+     Subtítulos: [Visita a la nueva Área Polivalente de Críticos en el Hospital San Pedro de Logroño.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466108/Visita.a.la.nueva.Area.Polivalente.de.Criticos.en.el.Hospital.San.Pedro.de.Logrono.zip)
+
+822. Título: Lengua de signos: Firma del Pacto Social para la Reconstrucción Educativa de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=6X0-f7BeRlY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=825
+     
+     Subtítulos: [Lengua de signos Firma del Pacto Social para la Reconstrucción Educativa de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466110/Lengua.de.signos.Firma.del.Pacto.Social.para.la.Reconstruccion.Educativa.de.La.Rioja.zip)
+
+823. Título: Pacto Social para la Reconstrucción de La Rioja: las claves
+
+     Enlace: https://www.youtube.com/watch?v=8O_WJRzq1XE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=826
+     
+     Subtítulos: [Pacto Social para la Reconstrucción de La Rioja las claves.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466120/Pacto.Social.para.la.Reconstruccion.de.La.Rioja.las.claves.zip)
+
+824. Título: Firma del Pacto Social para la Reconstrucción Educativa de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=C2Yf5NjtWN8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=827
+     
+     Subtítulos: [Firma del Pacto Social para la Reconstrucción Educativa de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466126/Firma.del.Pacto.Social.para.la.Reconstruccion.Educativa.de.La.Rioja.zip)
+
+825. Título: Lengua de signos: Comparecencia de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=araDz-w0Jzw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=828
+     
+     Subtítulos: [Lengua de signos Comparecencia de la Presidenta del Gobierno de La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466134/Lengua.de.signos.Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.2.zip)
+
+826. Título: Comparecencia de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Xy9EHd8ySJ4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=829
+     
+     Subtítulos: [Comparecencia de la Presidenta del Gobierno de La Rioja (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466141/Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.3.zip)
+
+827. Título: Lengua de signos: Declaraciones sobre el estudio de seroprevalencia
+
+     Enlace: https://www.youtube.com/watch?v=EiXEA2neZFk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=830
+     
+     Subtítulos: [Lengua de signos Declaraciones sobre el estudio de seroprevalencia.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466144/Lengua.de.signos.Declaraciones.sobre.el.estudio.de.seroprevalencia.zip)
+
+828. Título: Declaraciones sobre el estudio de seroprevalencia
+
+     Enlace: https://www.youtube.com/watch?v=F1xvGJpsdwo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=831
+     
+     Subtítulos: [Declaraciones sobre el estudio de seroprevalencia.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466160/Declaraciones.sobre.el.estudio.de.seroprevalencia.zip)
+
+829. Título: Lengua de signos: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=Yci9vElJerI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=832
+     
+     Subtítulos: [Lengua de signos Rueda de prensa posterior al Consejo de Gobierno (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466170/Lengua.de.signos.Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.2.zip)
+
+830. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=V6qC-a3vt34&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=833
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (69).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466172/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.69.zip)
+
+831. Título: Lengua de signos: Análisis de las medidas de apoyo dirigidas al sector del comercio
+
+     Enlace: https://www.youtube.com/watch?v=fyQQyzctZfU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=834
+     
+     Subtítulos: [Lengua de signos Análisis de las medidas de apoyo dirigidas al sector del comercio.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466176/Lengua.de.signos.Analisis.de.las.medidas.de.apoyo.dirigidas.al.sector.del.comercio.zip)
+
+832. Título: Análisis de las medidas de apoyo dirigidas al sector del comercio
+
+     Enlace: https://www.youtube.com/watch?v=W7ORRZkLR9s&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=835
+     
+     Subtítulos: [Análisis de las medidas de apoyo dirigidas al sector del comercio.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466181/Analisis.de.las.medidas.de.apoyo.dirigidas.al.sector.del.comercio.zip)
+
+833. Título: No queremos volver atrás, da positivo en Responsabilidad
+
+     Enlace: https://www.youtube.com/watch?v=SatBoyVJe34&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=836
+     
+     Subtítulos: [No queremos volver atrás, da positivo en Responsabilidad.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466187/No.queremos.volver.atras.da.positivo.en.Responsabilidad.zip)
+
+834. Título: EBAU 2019/2020 en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Dx-90Wxja_c&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=837
+     
+     Subtítulos: [EBAU 20192020 en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466196/EBAU.20192020.en.La.Rioja.zip)
+
+835. Título: Lengua de signos: Información de los proyectos financiados con el Fondo Social Extraordinario
+
+     Enlace: https://www.youtube.com/watch?v=fnS_lFjECbw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=838
+     
+     Subtítulos: [Lengua de signos Información de los proyectos financiados con el Fondo Social Extraordinario.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466221/Lengua.de.signos.Informacion.de.los.proyectos.financiados.con.el.Fondo.Social.Extraordinario.zip)
+
+836. Título: Lengua de signos: Información sobre las novedades de la fase 1 de la desescalada
+
+     Enlace: https://www.youtube.com/watch?v=2zPSUN9iJFs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=839
+     
+     Subtítulos: [Lengua de signos Información sobre las novedades de la fase 1 de la desescalada.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466224/Lengua.de.signos.Informacion.sobre.las.novedades.de.la.fase.1.de.la.desescalada.zip)
+
+837. Título: Información de los proyectos que se están financiando con el Fondo Social Extraordinario
+
+     Enlace: https://www.youtube.com/watch?v=b3w7H5Q7nco&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=840
+     
+     Subtítulos: [Información de los proyectos que se están financiando con el Fondo Social Extraordinario.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466231/Informacion.de.los.proyectos.que.se.estan.financiando.con.el.Fondo.Social.Extraordinario.zip)
+
+838. Título: Información sobre las novedades de la fase 1 de la desescalada
+
+     Enlace: https://www.youtube.com/watch?v=hHc3yNEZkYs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=841
+     
+     Subtítulos: [Información sobre las novedades de la fase 1 de la desescalada.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466240/Informacion.sobre.las.novedades.de.la.fase.1.de.la.desescalada.zip)
+
+839. Título: Lengua de signos: Novedades en el servicio de transporte de viajeros de La Rioja en la fase 1
+
+     Enlace: https://www.youtube.com/watch?v=Esq97nugjLU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=842
+     
+     Subtítulos: [Lengua de signos Novedades en el servicio de transporte de viajeros de La Rioja en la fase 1.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466245/Lengua.de.signos.Novedades.en.el.servicio.de.transporte.de.viajeros.de.La.Rioja.en.la.fase.1.zip)
+
+840. Título: Novedades que se incorporan en el servicio de transporte de viajeros de La Rioja en la fase 1
+
+     Enlace: https://www.youtube.com/watch?v=8jw9-SJkK6g&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=843
+     
+     Subtítulos: [Novedades que se incorporan en el servicio de transporte de viajeros de La Rioja en la fase 1.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466264/Novedades.que.se.incorporan.en.el.servicio.de.transporte.de.viajeros.de.La.Rioja.en.la.fase.1.zip)
+
+841. Título: Evaluación del pase de La Rioja a la fase 1
+
+     Enlace: https://www.youtube.com/watch?v=h1V9NqhTq9I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=844
+     
+     Subtítulos: [Evaluación del pase de La Rioja a la fase 1.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466269/Evaluacion.del.pase.de.La.Rioja.a.la.fase.1.zip)
+
+842. Título: Presentación del Plan de Relanzamiento del Turismo de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=nmD6deHZ7Gw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=845
+     
+     Subtítulos: [Presentación del Plan de Relanzamiento del Turismo de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466276/Presentacion.del.Plan.de.Relanzamiento.del.Turismo.de.La.Rioja.zip)
+
+843. Título: Plan de instrucciones para el final de curso lectivo 19/20 y el inicio del curso 20/21
+
+     Enlace: https://www.youtube.com/watch?v=Qq7X9QMOrlo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=846
+     
+     Subtítulos: [Plan de instrucciones para el final de curso lectivo 1920 y el inicio del curso 2021.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466277/Plan.de.instrucciones.para.el.final.de.curso.lectivo.1920.y.el.inicio.del.curso.2021.zip)
+
+844. Título: Presentación del Plan de Reactivación Económica
+
+     Enlace: https://www.youtube.com/watch?v=NeiAxOfvnJU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=847
+     
+     Subtítulos: [Presentación del Plan de Reactivación Económica.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466282/Presentacion.del.Plan.de.Reactivacion.Economica.zip)
+
+845. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=tAZGbrJ22WU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=848
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (70).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466287/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.70.zip)
 
