@@ -5079,3 +5079,700 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
      
      Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (70).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10466287/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.70.zip)
 
+846. Título: Encuesta nacional sobre hábitos de consumo de tabaco en el confinamiento
+
+     Enlace: https://www.youtube.com/watch?v=0f0jYjf6-mc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=849
+     
+     Subtítulos: [Encuesta nacional sobre hábitos de consumo de tabaco en el confinamiento.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478363/Encuesta.nacional.sobre.habitos.de.consumo.de.tabaco.en.el.confinamiento.zip)
+
+847. Título: Reunión del Consejo Riojano del Diálogo Social
+
+     Enlace: https://www.youtube.com/watch?v=TzdGQYtIRKA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=850
+     
+     Subtítulos: [Reunión del Consejo Riojano del Diálogo Social.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478364/Reunion.del.Consejo.Riojano.del.Dialogo.Social.zip)
+
+848. Título: Análisis de los datos del paro
+
+     Enlace: https://www.youtube.com/watch?v=CBTurJNloqY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=851
+     
+     Subtítulos: [Análisis de los datos del paro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478372/Analisis.de.los.datos.del.paro.zip)
+
+849. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (04/05/2020)
+
+     Enlace: https://www.youtube.com/watch?v=PsdgOJg_dLc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=852
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (04052020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478375/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.04052020.zip)
+
+850. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=VLkiAf87UqA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=853
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478386/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.zip)
+
+851. Título: Lengua de signos: Comparecencia de la Presidenta del Gobierno de La Rioja (03/05/2020)
+
+     Enlace: Lengua de signos Comparecencia de la Presidenta del Gobierno de La Rioja (03052020)
+     
+     Subtítulos: [Lengua de signos Comparecencia de la Presidenta del Gobierno de La Rioja (03052020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478389/Lengua.de.signos.Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.03052020.zip)
+
+852. Título: Comparecencia de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=45MdJ0hUju4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=855
+     
+     Subtítulos: [Comparecencia de la Presidenta del Gobierno de La Rioja (4).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478405/Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.4.zip)
+
+853. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (30/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=Tr36bB7UMxs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=856
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (30042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478410/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.30042020.zip)
+
+854. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=dZ7FD2Vuna4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=857
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478417/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.2.zip)
+
+855. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (29/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=xPAVTPbM9io&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=858
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (29042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478423/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.29042020.zip)
+
+856. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=G495uyEl88Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=859
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (71).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478426/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.71.zip)
+
+857. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=9ACm5voBUXc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=860
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478434/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.3.zip)
+
+858. Título: La Rioja Contrataca: CAPDP Santa Lucía de Fuenmayor
+
+     Enlace: https://www.youtube.com/watch?v=ee5aH79pgAk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=861
+     
+     Subtítulos: [La Rioja Contrataca CAPDP Santa Lucía de Fuenmayor.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478445/La.Rioja.Contrataca.CAPDP.Santa.Lucia.de.Fuenmayor.zip)
+
+859. Título: Lengua de signos: Reunión de la mesa regional para la reconstrucción económica y social
+
+     Enlace: https://www.youtube.com/watch?v=-Zn2IvVeF98&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=862
+     
+     Subtítulos: [Lengua de signos Reunión de la mesa regional para la reconstrucción económica y social.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478454/Lengua.de.signos.Reunion.de.la.mesa.regional.para.la.reconstruccion.economica.y.social.zip)
+
+860. Título: Reunión de la mesa regional para la reconstrucción económica y social
+
+     Enlace: https://www.youtube.com/watch?v=ej-l440dEY8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=863
+     
+     Subtítulos: [Reunión de la mesa regional para la reconstrucción económica y social.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478455/Reunion.de.la.mesa.regional.para.la.reconstruccion.economica.y.social.zip)
+
+861. Título: Lengua de signos: Reunión de la mesa regional para la reconstrucción económica y social
+
+     Enlace: https://www.youtube.com/watch?v=8RLvVjcsVKI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=864
+     
+     Subtítulos: [Lengua de signos Reunión de la mesa regional para la reconstrucción económica y social (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478459/Lengua.de.signos.Reunion.de.la.mesa.regional.para.la.reconstruccion.economica.y.social.2.zip)
+
+862. Título: Reunión de la mesa regional para la reconstrucción económica y social
+
+     Enlace: https://www.youtube.com/watch?v=-Nuzm3e91uc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=865
+     
+     Subtítulos: [Reunión de la mesa regional para la reconstrucción económica y social (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478463/Reunion.de.la.mesa.regional.para.la.reconstruccion.economica.y.social.2.zip)
+
+863. Título: Lengua de signos: Comparecencia de la Presidenta del Gobierno de La Rioja (26/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=1Tj8w_ipcew&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=866
+     
+     Subtítulos: [Lengua de signos Comparecencia de la Presidenta del Gobierno de La Rioja (26042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478471/Lengua.de.signos.Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.26042020.zip)
+
+864. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (26/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=ajhXowEyVK8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=867
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (26042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478475/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.26042020.zip)
+
+865. Título: Comparecencia de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=xgqhgjJNPr4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=868
+     
+     Subtítulos: [Comparecencia de la Presidenta del Gobierno de La Rioja (5).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478483/Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.5.zip)
+
+866. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=dLDJyoYnwGY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=869
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (4).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478493/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.4.zip)
+
+867. Título: Guía básica para la salida a la calle de los niños
+
+     Enlace: https://www.youtube.com/watch?v=3EBBTNnrcaM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=870
+     
+     Subtítulos: [Guía básica para la salida a la calle de los niños.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478498/Guia.basica.para.la.salida.a.la.calle.de.los.ninos.zip)
+
+868. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (25/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=VsuNXxvOLyg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=871
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (25042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478501/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.25042020.zip)
+
+869. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=YlqJ7Nay3uc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=872
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (5).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478509/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.5.zip)
+
+870. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (24/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=KylcFED7_MU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=873
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (24042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478553/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.24042020.zip)
+
+871. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=-qNrwAnfr5w&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=874
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (6).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478559/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.6.zip)
+
+872. Título: Proyecto de adecuación del Área Natural Singular Carrizal de Cofín
+
+     Enlace: https://www.youtube.com/watch?v=8Mt4Z63yrUk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=875
+     
+     Subtítulos: [Proyecto de adecuación del Área Natural Singular Carrizal de Cofín.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478563/Proyecto.de.adecuacion.del.Area.Natural.Singular.Carrizal.de.Cofin.zip)
+
+873. Título: La Rioja Contrataca: Gladys Henao, desde la primera línea.
+
+     Enlace: https://www.youtube.com/watch?v=N-0sSD5Oyd4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=876
+     
+     Subtítulos: [La Rioja Contrataca Gladys Henao, desde la primera línea..zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478569/La.Rioja.Contrataca.Gladys.Henao.desde.la.primera.linea.zip)
+
+874. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (23/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=tnnyaYzeVoM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=877
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (23042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478572/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.23042020.zip)
+
+875. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=k6gFdgyuQrc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=878
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (7).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478577/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.7.zip)
+
+876. Título: La Rioja Contrataca: Distribución de alimentos, medicación y artículos de higiene
+
+     Enlace: https://www.youtube.com/watch?v=VKN6yKD8Bmg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=879
+     
+     Subtítulos: [La Rioja Contrataca Distribución de alimentos, medicación y artículos de higiene.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10478582/La.Rioja.Contrataca.Distribucion.de.alimentos.medicacion.y.articulos.de.higiene.zip)
+
+877. Título: La Rioja Contrataca: Servicio ADER de Apoyo Integral a la Empresa
+
+     Enlace: https://www.youtube.com/watch?v=ZlHpTzSVjRg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=880
+     
+     Subtítulos: [La Rioja Contrataca Servicio ADER de Apoyo Integral a la Empresa.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479237/La.Rioja.Contrataca.Servicio.ADER.de.Apoyo.Integral.a.la.Empresa.zip)
+
+878. Título: La Rioja Contrataca: GRACIAS
+
+     Enlace: https://www.youtube.com/watch?v=7pW_L13o1Nk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=881
+     
+     Subtítulos: [La Rioja Contrataca GRACIAS.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479247/La.Rioja.Contrataca.GRACIAS.zip)
+
+879. Título: La Rioja Contrataca: Brigadas de Obras Públicas dan un paso adelante
+
+     Enlace: https://www.youtube.com/watch?v=D-5_n--RWS0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=882
+     
+     Subtítulos: [La Rioja Contrataca Brigadas de Obras Públicas dan un paso adelante.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479254/La.Rioja.Contrataca.Brigadas.de.Obras.Publicas.dan.un.paso.adelante.zip)
+
+880. Título: La Rioja Contrataca: Valeriano supera el coronavirus a los 100 años
+     
+     Enlace: https://www.youtube.com/watch?v=CKrKxpyVu6Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=883
+     
+     Subtítulos: [La Rioja Contrataca Valeriano supera el coronavirus a los 100 años.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479257/La.Rioja.Contrataca.Valeriano.supera.el.coronavirus.a.los.100.anos.zip)
+
+881. Título: La Rioja Contrataca: ADER lanza Cheque de Acción Rápida Coronavirus para ayudar a pymes y autónomos
+
+     Enlace: https://www.youtube.com/watch?v=So09OMOAR2A&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=884
+     
+     Subtítulos: [La Rioja Contrataca ADER lanza Cheque de Acción Rápida Coronavirus para ayudar a pymes y autónomos.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479262/La.Rioja.Contrataca.ADER.lanza.Cheque.de.Accion.Rapida.Coronavirus.para.ayudar.a.pymes.y.autonomos.zip)
+
+882. Título: La Rioja Contrataca: el Banco de Datos del COVID-19 en la región
+
+     Enlace: https://www.youtube.com/watch?v=L7s9MWpK2l0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=885
+     
+     Subtítulos: [La Rioja Contrataca el Banco de Datos del COVID-19 en la región.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479267/La.Rioja.Contrataca.el.Banco.de.Datos.del.COVID-19.en.la.region.zip)
+
+883. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (22/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=1jQ14nwMHiU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=886
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (22042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479271/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.22042020.zip)
+
+884. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=sI-YTPo9XF4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=887
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (8).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479273/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.8.zip)
+
+
+885. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (21/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=MFmC5cbujFs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=888
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (21042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479313/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.21042020.zip)
+
+886. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=yeFZjGF4dKI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=889
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (9).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479330/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.9.zip)
+
+887. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (20/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=6rxKywF2q_0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=890
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (20042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479345/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.20042020.zip)
+
+888. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=jnOeoiFh9q8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=891
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (10).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479356/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.10.zip)
+
+889. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (19/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=CkuJc4oCQ0w&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=892
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (19042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479361/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.19042020.zip)
+
+
+890. Título: Lengua de signos: Comparecencia de la Presidenta del Gobierno de La Rioja (19/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=JcFnJa28qjg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=893
+     
+     Subtítulos: [Lengua de signos Comparecencia de la Presidenta del Gobierno de La Rioja (19042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479372/Lengua.de.signos.Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.19042020.zip)
+
+891. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=LiYJrgBMrCI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=894
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (11).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479377/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.11.zip)
+
+892. Título: Comparecencia de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=pk2Qj9jOh-I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=895
+     
+     Subtítulos: [Comparecencia de la Presidenta del Gobierno de La Rioja (6).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479384/Comparecencia.de.la.Presidenta.del.Gobierno.de.La.Rioja.6.zip)
+
+893. Título: Lengua de signos: Rueda de prensa del consejero de Educación y Cultura (18/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=s9QYT_erSqw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=896
+     
+     Subtítulos: [Lengua de signos Rueda de prensa del consejero de Educación y Cultura (18042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479392/Lengua.de.signos.Rueda.de.prensa.del.consejero.de.Educacion.y.Cultura.18042020.zip)
+
+894. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=G6aEq7Kvsm8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=897
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (12).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479396/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.12.zip)
+
+895. Título: Lengua de signos: Rueda de prensa del consejero de Educación y Cultura (17/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=uJA8hrVW2Fk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=898
+     
+     Subtítulos: [Lengua de signos Rueda de prensa del consejero de Educación y Cultura (17042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479400/Lengua.de.signos.Rueda.de.prensa.del.consejero.de.Educacion.y.Cultura.17042020.zip)
+
+896. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=_ch0e6lnhkk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=899
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (13).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479404/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.13.zip)
+
+897. Título: Valeriano, paciente de COVID-19, celebra su 100 cumpleaños en el San Pedro
+
+     Enlace: https://www.youtube.com/watch?v=-ryVqAlq1co&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=900
+     
+     Subtítulos: [Valeriano, paciente de COVID-19, celebra su 100 cumpleaños en el San Pedro.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479409/Valeriano.paciente.de.COVID-19.celebra.su.100.cumpleanos.en.el.San.Pedro.zip)
+
+898. Títuo: Lengua de signos: Rueda de prensa del consejero de Educación y Cultura (16/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=Q0vGKPGxsQk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=901
+     
+     Subtítulos: [Lengua de signos Rueda de prensa del consejero de Educación y Cultura (16042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479413/Lengua.de.signos.Rueda.de.prensa.del.consejero.de.Educacion.y.Cultura.16042020.zip)
+
+899. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (16/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=kfNDv8Iar_E&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=902
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (16042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479490/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.16042020.zip)
+
+900. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=LS0PXTnkwqo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=903
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (14).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479503/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.14.zip)
+
+901. Título: Rueda de prensa del consejero de Educación y Cultura
+
+     Enlace: https://www.youtube.com/watch?v=gclckTtWtRE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=904
+     
+     Subtítulos: [Rueda de prensa del consejero de Educación y Cultura.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479520/Rueda.de.prensa.del.consejero.de.Educacion.y.Cultura.zip)
+
+902. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (15/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=3P4QDPlP_qY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=905
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (15042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479522/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.15042020.zip)
+
+903. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=fihWxoLpguU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=906
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (15).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479525/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.15.zip)
+
+904. Título: Andreu visita varias fábricas de Arnedo en las que se han producido 120.000 batas de polipropileno
+
+     Enlace: https://www.youtube.com/watch?v=mtesI4yNmCw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=907
+     
+     Subtítulos: [Andreu visita varias fábricas de Arnedo en las que se han producido 120.000 batas de polipropileno.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479533/Andreu.visita.varias.fabricas.de.Arnedo.en.las.que.se.han.producido.120.000.batas.de.polipropileno.zip)
+
+905. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (14/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=nhIo5IdLwXU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=908
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (14042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479542/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.14042020.zip)
+
+906. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=glhXPrmlUqg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=909
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (16).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479547/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.16.zip)
+
+907. Título: La Rioja Contrataca
+
+     Enlace: https://www.youtube.com/watch?v=UTFOFq7nLuY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=910
+     
+     Subtítulos: [La Rioja Contrataca.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479553/La.Rioja.Contrataca.zip)
+
+908. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (13/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=cyE28Z6h8KM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=911
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (13042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479557/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.13042020.zip)
+
+909. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=A6lFG85Lug4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=912
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (17).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479559/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.17.zip)
+
+910. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (12/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=0xpLz6z0uQA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=913
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (12042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479601/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.12042020.zip)
+
+911. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Ee6h4xjVAWE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=914
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (18).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479612/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.18.zip)
+
+912. Título: Recepcion de material sanitario en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=e3etg5VyRO0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=915
+     
+     Subtítulos: [Recepcion de material sanitario en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479615/Recepcion.de.material.sanitario.en.La.Rioja.zip)
+
+913. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (11/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=scfJWxRsSJA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=916
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (11042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479623/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.11042020.zip)
+
+914. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=ic5zHoicYt8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=917
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (19).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479628/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.19.zip)
+
+915. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (10/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=kE0vvy52cdE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=918
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (10042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479636/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.10042020.zip)
+
+916. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=ILMxWiyvOEs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=919
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (20).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479642/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.20.zip)
+
+917. Título: Lengua de signos: Rueda de Prensa de la presidenta del Gobierno de La Rioja (09/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=jIXK1nHjgoM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=920
+     
+     Subtítulos: [Lengua de signos Rueda de Prensa de la presidenta del Gobierno de La Rioja (09042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479648/Lengua.de.signos.Rueda.de.Prensa.de.la.presidenta.del.Gobierno.de.La.Rioja.09042020.zip)
+
+918. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (09/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=EodEWWnRlCs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=921
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (09042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479661/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.09042020.zip)
+
+919. Título: La Oficina de Retorno de La Rioja te ayuda a volver
+
+     Enlace: https://www.youtube.com/watch?v=Yw7TzNgz7Hk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=922
+     
+     Subtítulos: [La Oficina de Retorno de La Rioja te ayuda a volver.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479667/La.Oficina.de.Retorno.de.La.Rioja.te.ayuda.a.volver.zip)
+
+920. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=joND6nrlDaA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=923
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (21).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479671/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.21.zip)
+
+921. Título: Rueda de Prensa Concha Andreu, presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=ly6dn6Xet6c&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=924
+     
+     Subtítulos: [Rueda de Prensa Concha Andreu, presidenta del Gobierno de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479677/Rueda.de.Prensa.Concha.Andreu.presidenta.del.Gobierno.de.La.Rioja.zip)
+
+922. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (08/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=C-xjPgfwTxs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=925
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (08042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479686/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.08042020.zip)
+
+923. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=KGyhNIf8ji8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=926
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (22).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479694/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.22.zip)
+
+924. Título: Héroes de la Sanidad Riojana: Jorge y Rebeca (enfermeros Hospital San Pedro)
+
+     Enlace: https://www.youtube.com/watch?v=Zsp2xmHcqHw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=927
+     
+     Subtítulos: [Héroes de la Sanidad Riojana Jorge y Rebeca (enfermeros Hospital San Pedro).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479702/Heroes.de.la.Sanidad.Riojana.Jorge.y.Rebeca.enfermeros.Hospital.San.Pedro.zip)
+
+925. Título: Héroes de la Sanidad Riojana: Pilar (celadora almacén Hospital San Pedro)
+
+     Enlace: https://www.youtube.com/watch?v=IG6j1NQhs2o&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=928
+     
+     Subtítulos: [Héroes de la Sanidad Riojana Pilar (celadora almacén Hospital San Pedro).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479707/Heroes.de.la.Sanidad.Riojana.Pilar.celadora.almacen.Hospital.San.Pedro.zip)
+
+926. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (07/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=Ar5scRULzn0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=929
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (07042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479709/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.07042020.zip)
+
+927. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=9TDj5WggbqA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=930
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (23).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479715/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.23.zip)
+
+928. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (06/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=DsWlFV9XuOs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=931
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (06042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479716/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.06042020.zip)
+
+929. Título: Lengua de signos: Declaración Institucional de la Presidenta del Gobierno de La Rioja (05/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=xP4zmxisGUo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=932
+     
+     Subtítulos: [Lengua de signos Declaración Institucional de la Presidenta del Gobierno de La Rioja (05042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479723/Lengua.de.signos.Declaracion.Institucional.de.la.Presidenta.del.Gobierno.de.La.Rioja.05042020.zip)
+
+930. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=8jdePP79w04&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=933
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (24).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479733/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.24.zip)
+
+931. Título: Declaración Institucional de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=um_ChekQef4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=934
+     
+     Subtítulos: [Declaración Institucional de la Presidenta del Gobierno de La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479738/Declaracion.Institucional.de.la.Presidenta.del.Gobierno.de.La.Rioja.zip)
+
+932. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=5fORyeNYFHc&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=935
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (25).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479747/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.25.zip)
+
+933. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=alKcnmhgp10&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=936
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (26).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479750/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.26.zip)
+
+934. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (03/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=ofSjY9WQ71A&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=937
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (03042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479761/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.03042020.zip)
+
+935. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=2fluwJYbaf8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=938
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (27).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479766/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.27.zip)
+
+936. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (02/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=fe9zfNFUq3Q&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=939
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (02042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479771/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.02042020.zip)
+
+937. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Isk-XI3JiY8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=940
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (29).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479805/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.29.zip)
+
+938. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (01/04/2020)
+
+     Enlace: https://www.youtube.com/watch?v=FVMOU_ryW2E&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=941
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (01042020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479791/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.01042020.zip)
+
+939. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=Vu16HBAiFqY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=942
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (28).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479802/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.28.zip)
+
+940. Título: Declaración Institucional de la Presidenta del Gobierno de La Rioja (29/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=9NDdiiKO5cA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=943
+     
+     Subtítulos: [Declaración Institucional de la Presidenta del Gobierno de La Rioja (29032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479807/Declaracion.Institucional.de.la.Presidenta.del.Gobierno.de.La.Rioja.29032020.zip)
+
+941. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (31/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=lMOJ5DNpHYU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=944
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (31032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479813/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.31032020.zip)
+
+942. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=FbgduF8n5YA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=945
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (30).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479819/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.30.zip)
+
+943. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (30/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=aRJXEtImvJA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=946
+
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (30032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479828/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.30032020.zip)
+
+944. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=BR4MXVxwIWg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=947
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (31).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479833/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.31.zip)
+
+945. Título: ¿Conoces a alguien que tenga dificultades para volver a La Rioja?
+
+     Enlace: https://www.youtube.com/watch?v=vTfBccH_P-c&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=948
+     
+     Subtítulos: [¿Conoces a alguien que tenga dificultades para volver a La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479838/Conoces.a.alguien.que.tenga.dificultades.para.volver.a.La.Rioja.zip)
+
+946. Título: Declaración Institucional de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=QQbfs8ceMsg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=949
+     
+     Subtítulos: [Declaración Institucional de la Presidenta del Gobierno de La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479840/Declaracion.Institucional.de.la.Presidenta.del.Gobierno.de.La.Rioja.2.zip)
+
+947. Título: Rueda de prensa posterior al Consejo de Gobierno
+
+     Enlace: https://www.youtube.com/watch?v=Qtu-ZPbH2IY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=950
+     
+     Subtítulos: [Rueda de prensa posterior al Consejo de Gobierno (72).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479847/Rueda.de.prensa.posterior.al.Consejo.de.Gobierno.72.zip)
+
+948. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=mhcit-3ysUk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=951
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (32).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479852/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.32.zip)
+
+949. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (27/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=DykzIGypujo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=952
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (27032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479858/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.27032020.zip)
+
+950. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=lwLN5aibIxM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=953
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (33).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479869/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.33.zip)
+
+951. Título: ¿Cómo se gestionan los residuos en casa ante el coronavirus?
+
+     Enlace: https://www.youtube.com/watch?v=7mGjCkVfCts&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=954
+     
+     Subtítulos: [¿Cómo se gestionan los residuos en casa ante el coronavirus.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479875/Como.se.gestionan.los.residuos.en.casa.ante.el.coronavirus.zip)
+
+952. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (26/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=pjK3GE9y9kg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=955
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (26032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479882/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.26032020.zip)
+
+953. Título: Rueda de prensa información actualizada del coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=YIhAbsNyt5U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=956
+     
+     Subtítulos: [Rueda de prensa información actualizada del coronavirus en La Rioja.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479886/Rueda.de.prensa.informacion.actualizada.del.coronavirus.en.La.Rioja.zip)
+
+954. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (25/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=zHbRpgrMpH0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=957
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (25032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479893/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.25032020.zip)
+
+955. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=3XPbgfJKiSs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=958
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (34).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479896/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.34.zip)
+
+956. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (24/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=t4Rn7_hJooM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=959
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (24032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479899/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.24032020.zip)
+
+957. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=1lFs3gt31AE&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=960
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (35).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479902/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.35.zip)
+
+958. Título: Lengua de signos: Información actualizada sobre el coronavirus en La Rioja (23/03/2020)
+
+     Enlace: https://www.youtube.com/watch?v=9VfVr2gVulg&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=961
+     
+     Subtítulos: [Lengua de signos Información actualizada sobre el coronavirus en La Rioja (23032020).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479909/Lengua.de.signos.Informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.23032020.zip)
+
+959. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=whnVQZKdUr8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=962
+     
+     Subtítulos: [Rueda de prensa con información actualizada sobre el coronavirus en La Rioja (36).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479913/Rueda.de.prensa.con.informacion.actualizada.sobre.el.coronavirus.en.La.Rioja.36.zip)
+
+960. Título: Declaración Institucional de la Presidenta del Gobierno de La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=DaKdFPiiqvA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=963
+     
+     Subtítulos: [Declaración Institucional de la Presidenta del Gobierno de La Rioja (3).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10479920/Declaracion.Institucional.de.la.Presidenta.del.Gobierno.de.La.Rioja.3.zip)
+
+961. Título: Rueda de prensa con información actualizada sobre el coronavirus en La Rioja
+
+     Enlace: https://www.youtube.com/watch?v=OZW-KpsdYS4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=966
+     
+     Subtítulos: 
