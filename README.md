@@ -8105,10 +8105,198 @@ Este repositorio es parte del Trabajo de Fin de Máster del Máster de Ciencia d
       
       Subtítulos: [Inauguración de la Jornada sobre terrorismo.zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10556996/Inauguracion.de.la.Jornada.sobre.terrorismo.zip)
 
-1350. Título: 
+1350. Título: Homenaje a todas las víctimas del terrorismo
+
+      Enlace: https://www.youtube.com/watch?v=YDJsW9ZzM-U&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1414
+
+      Subtítulos: [Homenaje a todas las víctimas del terrorismo (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957454/Homenaje.a.todas.las.victimas.del.terrorismo.2.zip)
+      
+1351. Título: Entrega de Premios Pyme Carrefour La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=pUdQX-ICaoI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1415
+      
+      Subtítulos: [Entrega de Premios Pyme Carrefour La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957467/Entrega.de.Premios.Pyme.Carrefour.La.Rioja.2.zip)
+
+1352. Título: Firma del convenio de colaboración con la ONCE
+
+      Enlace: https://www.youtube.com/watch?v=nUjppUhcMCU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1416
+     
+      Subtítulos: [Firma del convenio de colaboración con la ONCE (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957474/Firma.del.convenio.de.colaboracion.con.la.ONCE.2.zip)
+
+1353. Título: Nuevo centro de día de Aldeas Infantiles en La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=ORRB91JXWTM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1417
+      
+      Subtítulos: [Nuevo centro de día de Aldeas Infantiles en La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957478/Nuevo.centro.de.dia.de.Aldeas.Infantiles.en.La.Rioja.2.zip)
+
+1354. Título: Acto de reconocimiento de empresas solidarias
+
+      Enlace: https://www.youtube.com/watch?v=CpJTsceTAWk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1418
+      
+      Subtítulos: [Acto de reconocimiento de empresas solidarias (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957481/Acto.de.reconocimiento.de.empresas.solidarias.2.zip)
+
+1355. Título: Asuntos tratados por el Gobierno de La Rioja en su habitual reunión semanal en Consejo
+
+      Enlace: https://www.youtube.com/watch?v=0GtFlFq17U4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1419
+      
+      Subtítulos: [Asuntos tratados por el Gobierno de La Rioja en su habitual reunión semanal en Consejo (12).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957489/Asuntos.tratados.por.el.Gobierno.de.La.Rioja.en.su.habitual.reunion.semanal.en.Consejo.12.zip)
+
+1356. Título: Empresas Solidarias
+
+      Enlace: https://www.youtube.com/watch?v=GhtDB_kTUxY&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1420
+      
+      Subtítulos: [Empresas Solidarias (4).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957492/Empresas.Solidarias.4.zip)
+
+1357. Título: Proyecto de Presupuestos para La Rioja en 2019
+
+      Enlace: https://www.youtube.com/watch?v=q0ccgvz8t-M&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1421
+      
+      Subtítulos: [Proyecto de Presupuestos para La Rioja en 2019 (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957499/Proyecto.de.Presupuestos.para.La.Rioja.en.2019.2.zip)
+
+1358. Título: Presentación del proyecto de Ley de Presupuestos para 2019
+
+      Enlace: https://www.youtube.com/watch?v=41G919yJ1XU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1422
+      
+      Subtítulos: [Presentación del proyecto de Ley de Presupuestos para 2019 (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957504/Presentacion.del.proyecto.de.Ley.de.Presupuestos.para.2019.2.zip)
+
+1359. Título: Inauguración de las nuevas instalaciones de Nidec Arisa
+
+      Enlace: https://www.youtube.com/watch?v=1gmNmKeL2dQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1423
+      
+      Subtítulos: [Inauguración de las nuevas instalaciones de Nidec Arisa (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957505/Inauguracion.de.las.nuevas.instalaciones.de.Nidec.Arisa.2.zip)
+
+1360. Título: Quinto tramo de la Vía Romana del Iregua, Lumbreras. Disfruta La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=PGV9AlM9yJA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1424
+      
+      Subtítulos: [Quinto tramo de la Vía Romana del Iregua, Lumbreras. Disfruta La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957510/Quinto.tramo.de.la.Via.Romana.del.Iregua.Lumbreras.Disfruta.La.Rioja.2.zip)
+
+1361. Título: Entrega de los galardones de la XXXIV Muestra de Arte Joven de La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=RoBhbN5vRcQ&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1425
+      
+      Subtítulos: [Entrega de los galardones de la XXXIV Muestra de Arte Joven de La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957513/Entrega.de.los.galardones.de.la.XXXIV.Muestra.de.Arte.Joven.de.La.Rioja.2.zip)
+
+1362. Título: Acuerdos Consejo de Gobierno
+
+      Enlace: https://www.youtube.com/watch?v=e8CYJ1K_OYU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1426
+      
+      Subtítulos: [Acuerdos Consejo de Gobierno (14).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957514/Acuerdos.Consejo.de.Gobierno.14.zip)
+
+1363. Título: El presidente del Gobierno de La Rioja se reúne con el ministro de Fomento
+
+      Enlace: https://www.youtube.com/watch?v=OwEH76t3cOw&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1427
+      
+      Subtítulos: [El presidente del Gobierno de La Rioja se reúne con el ministro de Fomento (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957516/El.presidente.del.Gobierno.de.La.Rioja.se.reune.con.el.ministro.de.Fomento.2.zip)
+
+1364. Título: Pleno del Parlamento de La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=gq6OShK5qSk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1428
+      
+      Subtítulos: [Pleno del Parlamento de La Rioja (17).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957518/Pleno.del.Parlamento.de.La.Rioja.17.zip)
+
+1365. Título: Entrega de los Premios Solidarios Once La Rioja 2018
+
+      Enlace: https://www.youtube.com/watch?v=uwJhVxA50fo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1429
+      
+      Subtítulos: [Entrega de los Premios Solidarios Once La Rioja 2018 (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957522/Entrega.de.los.Premios.Solidarios.Once.La.Rioja.2018.2.zip)
+
+1366. Título: XIII edición del International Wine Forum Ciudad de Logroño
+
+      Enlace: https://www.youtube.com/watch?v=I81ACaIc7O4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1430
+      
+      Subtítulos: [XIII edición del International Wine Forum Ciudad de Logroño (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957528/XIII.edicion.del.International.Wine.Forum.Ciudad.de.Logrono.2.zip)
+
+1367. Título: Inauguración del Congreso Internacional de Ciencias de la Vid y el Vino
+
+      Enlace: https://www.youtube.com/watch?v=CQzhjYk9IgU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1431
+      
+      Subtítulos: [Inauguración del Congreso Internacional de Ciencias de la Vid y el Vino (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957535/Inauguracion.del.Congreso.Internacional.de.Ciencias.de.la.Vid.y.el.Vino.2.zip)
+
+1368. Título: Entrega de los Premios CEdIR al Diseño en La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=he47B225zUU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1432
+      
+      Subtítulos: [Entrega de los Premios CEdIR al Diseño en La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957537/Entrega.de.los.Premios.CEdIR.al.Diseno.en.La.Rioja.2.zip)
+
+1369. Título: Plan de Vialidad Invernal 2018
+
+      Enlace: https://www.youtube.com/watch?v=yQKCV_dVPTM&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1433
+      
+      Subtítulos: [Plan de Vialidad Invernal 2018 (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957540/Plan.de.Vialidad.Invernal.2018.2.zip)
+
+1370. Título: Acuerdos Consejo de Gobierno
+
+      Enlace: https://www.youtube.com/watch?v=7s3I5NJ7RF0&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1434
+      
+      Subtítulos: [Acuerdos Consejo de Gobierno (15).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957568/Acuerdos.Consejo.de.Gobierno.15.zip)
+      
+1371. Título: Inauguración de la nueva sede de Iberaval
+
+      Enlace: https://www.youtube.com/watch?v=VF9dC0Bxga4&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1435
+      
+      Subtítulos: [Inauguración de la nueva sede de Iberaval (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957583/Inauguracion.de.la.nueva.sede.de.Iberaval.2.zip)
+
+1372. Título: Visita al acelerador lineal financiado por la Fundación Amancio Ortega
+
+      Enlace: https://www.youtube.com/watch?v=Qv2h9hR1o-I&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1436
+      
+      Subtítulos: [Visita al acelerador lineal financiado por la Fundación Amancio Ortega (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957601/Visita.al.acelerador.lineal.financiado.por.la.Fundacion.Amancio.Ortega.2.zip)
+
+1373. Título: Inauguración de la pasarela sobre el río Iregua
+
+      Enlace: https://www.youtube.com/watch?v=5BAXDxAA7EA&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1437
+      
+      Subtítulos: [Inauguración de la pasarela sobre el río Iregua (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957619/Inauguracion.de.la.pasarela.sobre.el.rio.Iregua.2.zip)
+
+1374. Título: Presentación de las Iniciativas Emblemáticas
+
+      Enlace: https://www.youtube.com/watch?v=ECGjQkBhZLI&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1438
+      
+      Subtítulos: [Presentación de las Iniciativas Emblemáticas (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957626/Presentacion.de.las.Iniciativas.Emblematicas.2.zip)
+
+1375. Título: Cuarto tramo de la Vía Romana del Iregua, Villoslada de Cameros. Disfruta La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=q_DnQqPqEys&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1439
+      
+      Subtítulos: [Cuarto tramo de la Vía Romana del Iregua, Villoslada de Cameros. Disfruta La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957633/Cuarto.tramo.de.la.Via.Romana.del.Iregua.Villoslada.de.Cameros.Disfruta.La.Rioja.2.zip)
+
+1376. Título: Tercer tramo de la Vía Romana del Iregua, Ortigosa de Cameros. Disfruta La Rioja
+
+      Enlace: https://www.youtube.com/watch?v=SSHHgbi6dX8&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1440
+
+      Subtítulos: [Tercer tramo de la Vía Romana del Iregua, Ortigosa de Cameros. Disfruta La Rioja (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957639/Tercer.tramo.de.la.Via.Romana.del.Iregua.Ortigosa.de.Cameros.Disfruta.La.Rioja.2.zip)
+
+1377. Título: Acuerdos Consejo de Gobierno
+
+      Enlace: https://www.youtube.com/watch?v=fMCz7VQtNRU&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1441
+      
+      Subtítulos: [Acuerdos Consejo de Gobierno (16).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957652/Acuerdos.Consejo.de.Gobierno.16.zip)
+
+1378. Título: Presentación de la iniciativa turistica La ruta de los tres valles
+
+      Enlace: https://www.youtube.com/watch?v=QNCrMC5_7Zs&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1442
+      
+      Subtítulos: [Presentación de la iniciativa turistica La ruta de los tres valles (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957658/Presentacion.de.la.iniciativa.turistica.La.ruta.de.los.tres.valles.2.zip)
+
+1379. Título: Presentación del nuevo sistema de señalización específica para motoristas
+
+      Enlace: https://www.youtube.com/watch?v=3ru_roGICjk&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1443
+      
+      Subtítulos: [Presentación del nuevo sistema de señalización específica para motoristas (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957661/Presentacion.del.nuevo.sistema.de.senalizacion.especifica.para.motoristas.2.zip)
+
+1380. Título: VIII jornadas Futuro en Español
+
+      Enlace: https://www.youtube.com/watch?v=_303xMfWEWo&list=UUm0tq4vpa3bWZCr5sgiA6rQ&index=1444
+      
+      Subtítulos: [VIII jornadas Futuro en Español (2).zip](https://github.com/mirenmirari/subtitulos_canalgobierno/files/10957667/VIII.jornadas.Futuro.en.Espanol.2.zip)
+
+1381. Título: 
       
       
-      
+
+
+
       
       
       
